@@ -1,0 +1,33 @@
+```
+1610
+
+{ 64  }  
+{ 578  }  { 814  } 
+{ 6  } 2  { 814  }
+{ 2378, 2378  }  
+{ 1564  }
+{ 3256 }
+
+{ 32  }  
+{ 782  }  { 814  }  
+{ 2  } 6  { 782  }
+{ 2314, 2314  }  
+{ 1564  }
+{ 3128 }
+{ 814  } 
+
+Indecim horae faciunt minuta 660: quibus de anno domini 1620
+sublimitate, refert annus Chirii 96, Heinrico 4. Haidare & Fracis regi,
+linæg. succesi-gori characteristicis. Resolutio auto minutiorum horion
+hoc calumniam Contradictiio. 
+nis & viage, facit annum domini 1594 sic: 
+660
+{ 94  }
+{ 844  }  {  1594  }
+{ 93.8  }  {  1668  }
+{ 5160  }
+{ 378  } 
+{ 1128  }  
+{ 1874  }
+{ 2910  }
+```

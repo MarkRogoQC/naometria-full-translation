@@ -1,0 +1,2781 @@
+# Alphabetical Index — Naometria (Studion, 1604)
+
+*Cleaned from the corrupt Latin/Fraktur OCR of pages 900–1014.*
+*Numbers preserved. Unclear entries tagged with `[?]`.*
+
+**Sections:** A (221) · B (105) · C (273) · D (174) · E (87) · F (93) · G (35) · H (143) · I (132) · L (100) · M (275) · N (93) · O (59) · P (136) · R (127) · S (307) · T (274) · V (53) · W (6) · Z (5)
+  · Appendix (5)
+**Total entries:** 2703
+
+
+## A
+
+- **Abjicis falteis chlais.**
+- **Abjicis pactum unable conexione.**
+- **Abjicis pro pulchritudine DOI, bregali.**
+- **Abjicis honeste mihi referend.**
+- **Abjicis pro pulchri et genti.**
+- **Adthabis veris vocibus clavd. reclinar ligis nerectaic.**
+- **Baldiniche.**
+- **Adhanz. Regius horologii mihi tint.**
+- **Adhas RE eida bijzonder.**
+- **Adhas veris toeslind tijf. cum repestelit in mellis.**
+- **Araltis gladis interecht, daete.**
+- **De filia Sethi nysfisseria.**
+- **Adah. Domn. Hebraicis peccati. stops ibith.**
+- **Itinerantinis initium Jeann an.**
+- **Adae [a]si 1590.** (Adam himself, abbreviation year)
+- **Adam creature.**
+- **Adam diclo facit annas.**
+- **Ad à forma litig.**
+- **Adam natus die 25 Martii.**
+- **Adam lyfus Thominis peccati.**
+- **Adami, V. for 15.**
+- **Adami stas nysfierna.**
+- **Adami morientes nysfios. animo 1590.**
+- **Adam nicisigran.**
+- **Adamus, Moisgti nitfinaction.**
+- **Adaprios lyfco terini sis pecati.**
+- **Ad, secetad nominibus hne deris.**
+- **An adverent secundo Christi zemisficatits michi van doğent secundo Christi suiticiis.**
+- **Ante resienden Domini scripto evertat dictionem.**
+- **Adventus Joannis Christi.**
+- **Adventus afflictionis.**
+- **Adventus auctoris Joannis**
+- **Adventus & Joachimi rodorics lernae.**
+- **Im aresidens predinis omnes**
+- **Gentes considerande.**
+- **Adventus iucundis (e tipos**
+- **Speciatica se dicit aequitate aequalitia peculiaritatis et as Stabilis. eiden**
+- **Gentes.**
+- **Speciatica feritatis ipsius aegit.**
+- **Aegis desifici.**
+- **Aegis Joannis prope a montibus Babylonis**
+- **Aegis feritatis Babylonis tradititas Sub. lis mugis nulis.**
+- **Et.**
+- **Aegis Via. et Quibus an.**
+- **Aegis via mediana ed.**
+- **Aegis via in Monasterio.**
+- **Aegis via alter Sacerdoes.**
+- **Aegis fius inferior Ro.**
+- **Aegis cantiolatoris Ro. mannin inferio.**
+- **Aegis Minis s. Mattheas egentis infici.**
+- **Aegis fius hydralis teca.**
+- **Aegis fi provincia Roma.**
+- **Two por plagius minervis nuis de auis roris, in confinis**
+- **Baldrich.**
+- **Aliquis accessi tipis Mahone tacite temth.**
+- **Aetatis persia Starchovici sog.**
+- **Aetatis Josephi & Isaie anni.**
+- **Aetati tuimus diimpeios.**
+- **Aeterna vita platis fit.**
+- **Agar suilla Sares.**
+- **Andilicianis alerion anni.**
+- **Aegis licoris & Mahona paraei choracorum fuit facio Baldopyna.**
+- **Iconis bicorris imago.**
+- **Aegis, candiucem cantatur.**
+- **Aegis facies visibilit.**
+- **Aegis multa seud.**
+- **Aegis peruitaneu glorification.**
+- **Aegis remanere. juvavit apud. mundis aircrafts.**
+- **Aemilius Christi in Ecclesia Orientali**
+- **Agnus biconis filius Jesu, Patria Ecclesiam & Imperia 18.**
+- **Agnus biconis orditie, rarius Monarchiam, 12.**
+- **Agnus Christi, deji mortinis. 56.**
+- **Agnus Dominator terrea. 165.**
+- **Agnus, de Dominis in nova Historiolynia. 742.**
+- **Agnus & Michaera in nova Historiolynia, praefigi.**
+- **Agnus Glis Malerici. 46.**
+- **Agnus in monte Sion Cálonis, 648.**
+- **Agnus jicefore insefartum. 652.**
+- **Agnus verisse dicitur, de domo Ahalon. 732-733.**
+- **Alcoranius Mahometis ab minitio. 377.**
+- **Almandrazis. der Sarace, merid. gavilatis. 52.**
+- **Alavrius publicansis anni. 1150.**
+- **Ala dia. 167.**
+- **Ala graefica. 149.**
+- **Alemanni dabunt fieri nec repentia Babylonica. 149.**
+- **Alemannoris & Francorum. 53.**
+- **Albedo nomen. Apuli. Dei insone Gentium & juvantis animalis. 162.**
+- **Ansam pater Stäffis 808. Anni tres misificiis**
+- **Ansam Sathanae divina 890. Anni vniis misificiis exierunt Snovlen 273. Aijus Rohanoréum Impedimentorum**
+- **Aquila Sancer Joan 523. Anno 1580 Crüde Jepanos**
+- **Angelica Ecclesia nova Hier. 213. Res Conscientes treuerbige.**
+- **Angelicanus alarim sono 61. ConfcEratonis Edmardo.**
+- **Angelus Origo 217. Anonimus Millenarii misificiis**
+- **Ange lus [...] . 84. Annum interiorem misificiis**
+- **Angelicus lapis nigris 409. Annis Trium misificiis**
+- **Anis [...] 807. Anomorum (anni 1530, A)**
+- **Annalis & deniialis lapidis 805. 1018. Anni 1576 misificiis cooperatis**
+- **Aralia metallica 175. Annum 43: Akada pe |**
+- **[...]. 125. Anno [...]**
+- **Aminora 100 misificiis. 846. Annunciata 2 Pan, & nota**
+- **[...]. 125. 125. Annunciata D. Mariae vginis**
+- **[...] this status 8th & [...]**
+- **Anni abreniantes und. 121. Annus nigrificius [...]**
+- **Anno 1530. Miri­tabis Babi­lum.**
+- **Anno 70. critice A­gnatis T­homae & Comate Stella­rum.**
+- **Anno 1586. C­ommumictas aparte­riis.**
+- **Anno 1618. Con­firmationis.**
+- **Anno 1650. Niti­onis.**
+- **Anno 1570. A­bilis in Teste Secundo.**
+- **Anno 1648. Litera­cis.**
+- **Anno 1669. Magni­us.**
+- **Anno 1690. Magni­us. minit (scripta).**
+- **Anno 1720. mod­uitatis; M­abo, Anno Seth.**
+- **Anno 1600, 1607. Nasarcius ef an­nis.**
+- **Anno 1650. Nove mericis mihi.**
+- **Anno 1560. non­agenarius & Con­fessinis.**
+- **Anno 1661. Tanc Stella fit de jure, T­ebalis Cot­tantopholis.**
+- **Anno 1650. e­statis; adsha Et, & risus manufacture.**
+- **Anno 1582. Apothei ad aqueous.**
+- **Anno 1602. ex­aminis ai­ficationis (Ti­rebore) transi­flan facis.**
+- **Anno 1602. initium noc­tis michelis.**
+- **Anno 1590. fatalis Mona­chris miseri.**
+- **Anno 1590 x. date Noir.**
+- **An­nus videret domi/cinum.**
+- **Anti­chi­risti datis prima­fu­mi­ture.**
+- **Anti­christi & An­geli ex­ec­tis.**
+- **Anti­christi homin­is pec­ca­di­bat. antiq. Traditionis i­decor­is.**
+- **Anti­christi mo­ris vir­tulis.**
+- **An­thichrisiI O­pifera pro abig­io.**
+- **Anti­christi fad­rio.**
+- **Anti­christi renovari­on, el Ecclesia­rum desra­bator (p) Triniti E­uad.**
+- **Anti­christi rerum pro H­ieroglyphico Roma.**
+- **Anti­christi requis­um pro caeno Babylonic.**
+- **Anti­christi re­gienti.**
+- **Anti­christi re­dis n­id para.**
+- **Anti­christi pro­cus in hare sus, ad re­liter.**
+- **Anti­christi ten­ebris rufi­cis.**
+- **Anti­christi videt, re­cotis fulge­s, as­per grealis exis.**
+- **A. A.**
+- **Antichristi typus Minardo primae Monarchiae Maturae electi 217.**
+- **Antichristi typus Richardus**
+- **Antichristi typus Malacho**
+- **Antichristi hoc Pant. mentes, venit Salviatio necé**
+- **Antichristi Romano in mentes intestitios et flagé**
+- **Antichristi deii temblo**
+- **Antichristi prohíbiis, hunc**
+- **Antichristi hic servet, et donec dicertum dominé**
+- **Antichristus legitimus**
+- **Antichristis est Monro, sed ratio est praeclara**
+- **Antichristis jodinas digitis**
+- **Antichristis in Elifidis ten vorae. Pauls et retaetis**
+- **Antichristi prole scheleia. Ouar, tuus Spes**
+- **Antichristus iderethi**
+- **Apostolorum dicentes ..., hunc electi 10.**
+- **Apostolis medio miffiorum 163.**
+- **Apostolis. Larenith 127.**
+- **Alphonsi pris 984.**
+- **Adin & geniis tabiditionis 892.**
+- **Ala de Jarquinis laterichi 611.**
+- **Atrialia de Janquerien convenerit 620.**
+- **Adiacensium congeries el. Ill 155.**
+- **Adiacens cum v. numerava Babins duplicis [...] 383.**
+- **Apulius Romanus affrati vide 149.**
+- **Aquila grandi 1185.**
+- **Aquilae hieroglyphico rotat .....................................[...] 297.**
+- **Aquilae in Tendere, in Orientale & Occid. dentale 340.**
+- **Aquilae Romana fatalis in mis 1605. 966.**
+- **Aquila Tella.**
+- **Aquilae idae pro improb.tis Oi [...]. 113.**
+- **Antimaal Romanesira dicert, tail de gentilis. 165.**
+- **Adus ail. [...]**
+- **Arabe̱s templínium conditĩ in honore̱n S. Mahometti.**
+- **Ária mystica pro re̱ṽo Mahometico.**
+- **Arabia Egypti̱ca.**
+- **Ar̆ica Tef̱aruni̱ casbati in noris Hierogiliñis.**
+- **Arcus Tef̱aruni̱ Nige̱ i̱nis Bobo.**
+- **Argentina e̱t íañi bello⟨ren⟩ filii̱c̱orum.**
+- **Argentinus ferḇ superiū.**
+- **Ariadnes Coreus.**
+- **Ariadnes filia Minotauri̱ (c̱ede).**
+- **Ariel id id lo̱ Dei pro̱ Romanis.**
+- **Arius & Aicius.**
+- **Arius Orientis Impe̱rii.**
+- **Aricibus sedes Plaga.**
+- **Amúgdá.**
+- **Ariesindă radix Saraceñsi̱.**
+- **Arcinus praec̱ator Mahometi hic̱ fluento̱tther.**
+- **Serocania anteiride̱ cuius. dame̱ Effic̱iis potu̱nci.**
+- **Alma de̱ lūg̱is carolis magni.**
+- **Alicius Serpentis.**
+- **Ale̱c̱ius coṉflictis ris l̃ten.**
+- **Act.**
+- **Atque pro ṯíric̱o Impe̱rii.**
+- **Adagi̱us R. Ganespondali̱s.**
+- **A fruis Regis Virtu̱iṉs, mereṯicis Babyloṟnia.**
+- **Alexandrae Confessio filii He la Petio**
+- **Ariostranorum Confessio hanc prima praefigurans**
+- **Ariaca Domus Romae, et**
+- **Civitas fluviosa.**
+- **Ariaca hebraica Schah.**
+- **Ariaca templum salmonum regio fragilithis. Atque**
+- **Ariaca fugi Orientale, et**
+- **Sicilianus Inferneium na. ab ortu civi ipsum**
+- **AlAfricanem. Et vocites res ex spoliaturis.**
+- **Babyloniis aereis**
+- **Ariod. id est igible**
+- **Truicienmon.**
+- **Agirversus des 1793.**
+- **In candelabris mysteriis.**
+- **Stellae Conatae Venereis.**
+- **Candelabris. Sinigrum op. formica Stellae Venereis.**
+- **Sandica.**
+- **Candelaris mystifierum.**
+- **Anticis natis initiis.**
+- **Anticuum Abri concantandum. [...]**
+- **Canticorum novi n.**
+- **Canticorum novi sph. bruxanum 1620.**
+- **Capitularium prolocectionum.**
+- **Allis origo.**
+- **Capitis brux. corpus. Ctlis.**
+- **Capitibus triusn cerificto in Ecclesia.**
+
+## B
+
+- **Baal idolum.**
+- **Baal meretricius Babilonis nica mater.**
+- **Babylon hebraici enfusio.**
+- **Babel.**
+- **Baalon rapertis.**
+- **Baal eliz. sacra. .**
+- **Baal radolphis inq.**
+- **Eiasus neauem.**
+- **Babylonica Meretricis Sol sociata in Meridie.**
+- **Babylonica capitis huius annis 70. cirurgia ex avis**
+- **Norica b. Coranate Stiflalp.**
+- **Babylonica dititia.**
+- **Babylonica Meretricis una cum Carolo.**
+- **Babylonica meretricis ju xta Ithalica regina.**
+- **Babylonica meretricis de majationis praenatica e nus Stella.**
+- **Babylonica Meretricis ex ina Liddex.**
+- **Babylonica meretricis lig.**
+- **Missi Johannes b. famina**
+- **Sapa.**
+- **Babylonica vobis prima iu dicto Mimmeros.**
+- **Babylonican merdedicon varpbatum Claudeici.**
+- **Bacchus Rex vini prae miserus, exundo vocem 24.**
+- **Bacchus inimicus pueis.**
+- **Bacillo panis caeloi vace dilacif patidis labdencium.**
+- **Bacillium panis facient nacure ex aliis tabitis intra ex foris scissito.**
+- **Bacchus panis dicitur, nu meris inamed libra vincis ex foris scissit.**
+- **Baixa redi miserias.**
+- **Bacchii dicispon geneati marco talibendi.**
+- **Bacchii lisus dilucis.**
+- **Bacchii myfeffieris.**
+- **Bacchii exangeliocis.**
+- **Bacchiii sebalitaminis.**
+- **Bacchii hominis lisus of ex autralendacion praei extrapredicatum.**
+- **Bacchii efficiencia.**
+- **Babulaid honores Cadan.**
+- **Bel.**
+- **Belli Argentinisis unita ex nigeri.**
+- **Belles Halobratica erigo.**
+- **Belis Mitfer andlater**
+- **Babylonis, hinc retactic**
+- **Babilienis.**
+- **Belis Minverdi filiis.**
+- **Belis ex Babylonis erigo ferera Adolateriae.**
+- **Beneadornia fanum adme e eucila penam.**
+- **Beniami in Gleihain.**
+- **Belis vironisi fidel corni baleiende necessi verenda mundi.**
+- **Sophia licorinisi degenera trant sector in benis**
+- **Orientes.**
+- **Belis talaas lasfert.**
+- **B. B.**
+- **Beata Hierarcha pro laude Sirius 304. Beotus Archiatrhylus Vace ustos 103.**
+- **Beatia vadoris in intensior 931. Borealia jivea. 420.**
+- **Beata natioris 1127. Brevisia pro regno & b. & venia 1211.**
+- **Diceres Jesu imago ta 124. Brandanbrigius Marchio, 1160. dichodendo. 143. Biyant. virius dignorum in “Saracenica” 249.**
+- **Diceres Jani & Mahometis 89. Byzantium id est, Caelebs 279. hujus characterem faciens. id hoc 1 & mcdluces.**
+- **Eclessiae Rm. & Just. 117. — [...]**
+- **Burdons amnis oris. 126.**
+- **Bileaile hiclo.**
+- **Bimijg in rib fina cum frae 132. populum. 300.**
+- **Baldagum narca den 154. Caulis Red Hispaniae. 368. altera fkeda 2019.**
+- **Bohemia regis rth. S. Antonii 1083 das 300.**
+- **C. -**
+- **Caulis Red Hispaniae. 368.**
+- **Całei deficitum. 264. das jacerodis Zacharia, vindicibilis mystifie est non rečeno 595.**
+- **Bocale Amoris virgis virgil . 25.**
+- **Salvem ters وكانت 12. 506.**
+- **Sacerdotes a vine. etito**
+- **Sacerdoti Alldolblanco phani nidiat nitidum**
+- **Sacerdoti levitia sidi**
+- **Sacrificium. pii**
+- **Sacros libros absentis Pe.**
+- **Sty. Prior. Lido**
+- **Sagittareis pedagogis**
+- **Sagittareis figuris ca.**
+- **Sal. a lo Statuta Salis iicetere Mare**
+- **Sal. hebraici Madai**
+- **Sal. nota. mirifica derisfa tionis**
+- **Salis acreti Sedorum, ed**
+- **Somoncha**
+- **Salis statis dictas**
+- **Salis statis mirificis (non)**
+- **Salomon forma regimen meredenus Babylonicus**
+- **Salomon Red. Syalis**
+- **Salomon Red. Syalis hisp ret! ievm am meretal 1430**
+- **Saberonius teka obstodes.**
+- **Salomonis regis regnum 27.**
+- **Salomonis regnum fideli 379. in dias partes Ol 1808. 100.**
+- **Salomonis regis turbulentam 176. nigricum, et Africanum.**
+- **Palistator expectatione 416. referentia secunda contra Ba. chim.**
+- **Salvator mundi Jesuli 402. jacet in Eccla Ro. in Fijs.**
+- **Salvatoris exs romen 95.**
+- **Salvatoris egregiis 147.**
+- **Salifica files.**
+- **Salvatore mundi revide 300.**
+- **Filippo, per non dech. 33.**
+- **Fratio.**
+- **Salvatoris pro altera Con. 58.**
+- **Samarica metropolis mis. 259. literarum eugen. 885.**
+- **Samaritani franciscor 122.**
+- **Mathemetici.**
+- **Samoleus (Elixiris hom.) 626.**
+- **Sampson filius Christi.**
+- **Sampson sede est in Jefal, 76. in jouis descript. 82.**
+- **Sama vidit racelis Judes 559.**
+- **(iii) in valle jasthal.**
+
+## C
+
+- **Canceri b. Capricorni nxi.**
+- **Capricorni b. Cancri nystific.**
+- **Capricorni: Simulac. caeli.**
+- **Abbreviatus Babolonici et. quitus. Aeschiaca. [...]**
+- **Tellis mystificis inclita.**
+- **Abbreviatus Babolonici &.**
+- **Societas. &. [...]**
+- **Antiillicitis Babolonis. ar uss 70 oriatum & amnis novae & Gonatus Steltag.**
+- **Cappell. Tenthinis lariis.**
+- **Caput. Gentium in Christi.**
+- **Reciso aedificiis sed Rxx**
+- **Danis.**
+- **C. Folio. I**
+- **Pelliceria & Hispania. 827.**
+- **Centurias Pharao Res Alch. 89.**
+- **Jureliden. 341.**
+- **Agnus. 1659.** [?]
+- **In (fru)h adie(n)t secu(n)do verna rephre(n)tia filtra**
+- **In (fru)h adie(n)t secu(n)do conducit Ecclesi[a] eudeme(i).**
+- **In (fru)h adie(n)t secu(n)do eeldieject bris(m) serom(a) mat(t)ensio or(b)entem**
+- **In adie(n)t po(se)i(n)do pas(so)rates of tehrifis**
+- **In (fru)h adie(n)t secu(n)do eicid vesici(n).**
+- **In adie(n)t secu(n)do bris(m)s quae(que) omne(s) Gentes as(i)ficatus pri(a)m te(c)le(i)ben**
+- **In adie(n)t secu(n)do bris(m)s toll(i) intere(s) Orient(i)s**
+- **& Occ(i)dent(i)s**
+- **In adie(n)t s(a)c(i)ndo bris(m) valhabit & et e(c)tab(i)li eam hui(us) f(i)li.**
+- **(1) [drawn line]**
+- **(2) b**
+- **(3) C.**
+- **Heis(t) anni(s) 1602 est confor(m)is anno 1572.**
+- **Heis(t) anni(s) 1586 c(h)amu(s) mis of St(e)llis novis & Com grate.**
+- **Heis(t) anni(s) 1606 de ini t(i)ma martis f(ra)tr(i)sc(i).**
+- **Heis(t) anno(n) 1530 d m(i)ster(i) co-operat(i)**
+- **Stella cor(n)da.**
+- **Heis(t) in relig(i)o in h(a)on m(a)ter(i)s per(s)ept(i)b(i)s.**
+- **Christ(i)(a)na Eccl(e)si(a) [...]**
+- **Heis(t) initemor(i) (t)ollores e(de)vent.**
+- **Christ(i) capitis cor(p)us [...].**
+- **Heis(t) en[a] m(i)gn(i)ca cadit anno 1597.**
+- **Heis(t) collob(d)(i)um m(a)g(i)s & mal(i)s [...]**
+- **Heis(t) col(x.)(i)nia cum**
+- **Magi(s) & s(a)lt(s) de Espec(i)**
+- **Christ(i) cor(p)us Eccl(e)si(a)**
+- **Heis(t) ex(p)er(t)(i)c(i)(ae) c(i)rc(u)ms(i)tionese pate(v)i(t)i**
+- **Heis(t) crea(c)ius injust(i)c(i) [...].**
+- **Heis(t) & Dei nomen in nova Hierozol(i)ma.**
+- **Christl. praeidicationis dies tres**
+- **Christl. prophetia de hoc proecalo**
+- **Christl. regenerationis mystica & altera**
+- **Christl. regnum nouum**
+- **Christl. regnum oblancea**
+- **Christl. regnum vis patria.**
+- **Christl. carus.**
+- **Christl. tentationis Aces et jejunii.**
+- **Ad Christl. consideratione omnium coelestium facultatum.**
+- **Christl. collis in Petri paternitate.**
+- **Christl. ceuici minaxies**
+- **Christl. regente fittiora multo respectu.**
+- **Christl. Altha & Omega.**
+- **Christl. abecedarium habens:**
+- **Christl. contrafactum ad Phronisis.**
+- **Christl. esri.**
+- **Christl. praedicationis annuen.**
+- **Christl. praeidicationis.**
+- **C. Titel**
+- **Christus d[ef]deratus di[ci]ture 86.**
+- **Christus et dominator 60.**
+- **Christus naci[t]ion[e] 20.**
+- **Christus natum [ fo]ti fli[em] 24.**
+- **Christus d[ef]initive 50.**
+- **Christus prim[us] Iu[st]in[i]s S[al]tara 29.**
+- **Christus et dominis 30.**
+- **Christus exi[t] [fil]us dominus 50. ter[p]era t[ace]at, & filio terminus 23.**
+- **Christus et [s]lorai V[ei]r 36.**
+- **Christus [fi]lli[us] Malte[ri] 84.**
+- **[Capella expellit] minandoros 60.**
+- **Christus genu[ina]s haereticus 30.**
+- **Christus habitat[us] a[n]tiquissim[us] 198.**
+- **Christus iomen vocat beigos 239.**
+- **Christus in n[ost]re collectivis 879.**
+- **Christus e[m] moyg[!]et 30.**
+- **Christus [in]s[e]rtis V[ir]gine 1083.**
+- **Christus iterum nos v[ir]g[is] 112.**
+- **Christus iurens comparat. [243].**
+- **Christus mare 12.**
+- **Christus [labit] [am]ures 10.**
+- **Christus [s]ion re[d]ificat[us] 85.**
+- **Christus Reg[is]**
+- **Christus iusiidini. 244.**
+- **C. folio. C.**
+- **Chrestius sans inter vestŭa secula u nŏvŭa horni 184.**
+- **Anselmus se alsi ascivera se c 102.**
+- **Chrestius se conscermerati an 232. 60.**
+- **Amelita sel ad huc saturant ulﬁe 60.**
+- **Quasi secula de qua descripta 60.**
+- **Chrestius secina significa 102.**
+- **Quintus in se discedi adhe 2195. 1640.**
+- **Chrestius solus seri discedere? 20. 71.**
+- **Clarificatio sustuli in 195. 73.**
+- **Mariis: corona vel altis, mythice Etbane 404. 3.**
+- **Oraculum pro Ambegeo 33.**
+- **Valle isola Maspultat. 245. 2.**
+- **Creationis Sirius 591, 60, 1045.** (Of Creation, Sirius star)
+- **Clasis Ciameliorum 360.**
+- **Claïs Scientiae shilares 1870.**
+- **Claïs apericuli sipler. 2.**
+- **Christ David 996. 7.**
+- **Christ David anni 1593: 48. 25.** (Christ and David years)
+- **Christus videre abstint. 781.**
+- **Cretita, et spaga, 926.**
+- **Caelo psaltato pro Romano 507.**
+- **Imperio 420.**
+- **Celi stellarium munuverus. 749.**
+- **Celi sidera ab hres oridun. 742.**
+- **Calidian regnitur von por. 510.**
+- **Celians, Mare & terra nu. 163.**
+- **Celians, medidum, sei. Via Aigitti. 355.**
+- **Celians, majifici Apo templi Antichr. 238.**
+- **Celians, hoc gl. Templi. [...].**
+- **Dei in hac terra nouis. 165.**
+- **Celians pro templi. [...].**
+- **Celians ad templum Pat. reced. ab specto illus rotus 1590.**
+- **Cora Christi in domus sinos misificad casit in annum 1590.**
+- **Ceasar Rom: Minu. in de. 1777.**
+- **Cognata Stella. 408.**
+- **Cognata Stella cum Vex. 289.**
+- **Cognata Stella & Mois, 250. quod inicie liberatoris marquisuis Nef. [...].**
+- **Cognata Stella propeici. [...]. ti ab anno domini 162. 801.**
+- **Cognata Stella contin. in 1572.**
+- **Cognata Stella respicit ad 658.**
+- **Cognata Stella Venus & K. 220.**
+- **Cognata & Nova Stella 165.**
+- **Cognata & Nova Stell. 174.**
+- **Cognata & nova Stella. 918.**
+- **Cognata & Nova Stellarium. 70. cathedratis Babylon.**
+- **Cognata & Nova Stell. 741. 191. 246.**
+- **Cognata & nova Stella, r. E13. 135.**
+- **Cognata Stella Veneris misificam in pandalibus 107.**
+- **Cognata & Venus Stella 1205.**
+- **Cognata Stella dă a horā. 109.**
+- **Cognata & Stella, mis. de desipitis 194.**
+- **Cognata Indorum, se. f. [...].**
+- **Columbae praecisae Fligtha nae Creatiionis typeis**
+- **Columba famed misfica.**
+- **Columba bretia typica.**
+- **Columbae textia Area.**
+- **Thoti volano.**
+- **Columbae praecisae [...].**
+- **Columbarium ministerium 477 ad calumnio in trei pectis.**
+- **Siren Plect. les. [...].**
+- **Columbae de cois.**
+- **Columba et signis et multi**
+- **Figuratce enforce.**
+- **Et de iis descrine.**
+- **Correta anni 1572.**
+- **Corretta anni 1585. notato interdicta Antichristi.**
+- **Corretta anni 1597. respectiv. interdictin Annorum 1625.**
+- **Corretta anni 1612. [...].**
+- **Cantica plurima et sacros viri professores.**
+- **Condita iter capell. [...].**
+- **Condita Natu vidas.**
+- **Condita nova Sphera.**
+- **Consolatio iifera nova.**
+- **Confessio ecclesiae pragrazis ad interdict. seudis.**
+- **Condictio Fideleri Pucis Viri tommoragi michi nisce müssica**
+- **Canditor Asirius verbis Bar.**
+- **Monice Diswod.**
+- **Confessio Sti. Floriana per Quaestum Primam predic.**
+- **Confessio Sti. Florina fil 46. viae rethros.**
+- **Confessio Evangelica Rode.**
+- **Saeculum Niserischem.**
+- **Confessio [...].**
+- **Confessio Calendae.**
+- **Crisis. 30**
+- **Confessio fideli anni 1651.**
+- **Confessoris Reo Ecclesiae Kiris**
+- **Restruct. Initituu Ant**
+- **Ascensio per flexionis masculinum procor.**
+- **Conflagrans: Sodomae &**
+- **Gomuche mistret.**
+- **Conflagratio Sodomae est**
+- **Confederatio cum Repe**
+- **Missarava.**
+- **Confederatio Alenannost.**
+- **Federationis contra te.**
+- **Limi Americanum.**
+- **Confederatio typica. France.**
+- **Monaco & Intentionarius.**
+- **Confederatio Eunius. curius paradensius ad comitatus vesie jorando instectum, reversum.**
+- **Confessio pro Babylone.**
+- **Confessio Nissini in se cundo evang. adienré.**
+- **Constantinopoli revisita et intacta (nicht gewis).**
+- **Constantinopolis mysticis tenerecanotis conjurati.**
+- **Constantinopolis Imperatoris orientis & thracis cathedra.**
+- **Constantinopolis Damasci archidiaconis.**
+- **Constantinopolis mysticae solona.**
+- **Constantinopolis & Pragae peruenire respectus.**
+- **Constantinopolis & Thracis tabulae in ’Saramama.**
+- **Constantinopolis sed Roma nova tipis Roma, verba heltarecins.**
+- **Constantinopolis retinere tuer a Constantinopoli.**
+- **Constantinopolis pro Dacia.**
+- **Constantinopolis ternacont. consecr. et anno 929.**
+- **Constantinopolis verbis nigerism.**
+- **Constantinopolis ubs**
+- **Gypantus Orientalis.**
+- **Constantinopolis ubs in positalcrum Tiberium redant dati in sictione finitium.**
+- **Constantinopolis a Phicos debilita.**
+- **Constantinus Imperatoris celsi in celo visibilis.**
+- **Conformaciones animis conventus singularis.**
+- **Comercio Gentium juxta specialis & Generalis.**
+- **Comercio in modorium trictorum fecit.**
+- **Condicio Mahommedicorum et Saracenorum.**
+- **Conformacio versíam in**
+- **Henricio A. uge Nautave.**
+- **Conformaciones verisd & princípios 1593.**
+- **Conformitàm versón & literarios finem é aus theretis.**
+- **Consideratio annos Gens et Pritium.**
+- **Codex Apost. Tella Cognat est mysterium annos**
+- **Congregatio Edmus Apost. et Cedualis.**
+- **Foresparadíni salus per Baptista concordi Tertius aduore.**
+- **Corinus & venerandam amici 169.**
+- **Corinus lidionis ipsarum 634.**
+- **Corinus hic generis offici 182.**
+- **Corona Steidana 100.**
+- **Corona Calaris vel Althaus, 185.**
+- **Corona Lothravan redd. 285.**
+- **Corona S. Tho. Principalis. 214.**
+- **Corona vitae 674.**
+- **Coronis vitae Hieremica. 627.**
+- **Corona fitis in cado. 201.**
+- **Coronis habent rimas. 709.**
+- **Corporalis Reflectoriae 743.**
+- **Coronis Cris. Ceciliae 538.**
+- **Corinus Serevis. & Matho. 462.**
+- **Corinis & Chlombas. 487.**
+- **Corinus Maericius Pai. 269.**
+- **Corona nostris caedis. 162.**
+- **Corinus Mahomedice ex sala 173.**
+- **Corinus pori recidi & tem 501.**
+- **Corinus in Chiambra pris. 345. reative labris 200.**
+- **Credidimus & Gerundia 661.**
+- **Ceuice signati 565.**
+- **Ceuice signati Edandiis 381.**
+- **Ceuice signati: S. Marci 379.**
+- **Ceuice signati S. Imberici 518.**
+- **Ceuice signati S. Francis 933.**
+- **Ceuice signati S. Ludh. 953.**
+- **Ceuice signati: Principes 1704.**
+- **Ceuice paradorum communi 149.**
+- **Ceuice pinatorum Exiang 975.**
+- **Peices & sapientorum 1178.**
+- **Cedice hos in cado. 646.**
+- **Ceices in Dicnach Witten 1178. mergico ultimares labes 651. recedr. & salvatid idosae. 200.**
+- **Ceŭiciū lippis Christi ceŭiciūtionis Papae Mini-**
+- **Ceŭiciū Papae fīli in hygiene**
+- **Ceŭiciū siŕium casilium in lecto**
+- **Ceŭiciūtionis mysteriorum**
+- **Haltiscianum mundum.**
+- **Ceŭiciūtionis nota 34.**
+- **Ceŭiciūtionis Papae Mini franciscā de Conced anno**
+- **Ceŭiciūtionis Papae Mini tempus**
+- **Ceŭiciū adfuit virinicus**
+- **Bacchus**
+- **Ceŭiciū adorū labosum.**
+- **Ceŭiciū mysterium gextra-**
+- **Ceŭiciū estandingis spira-**
+- **Ceŭiciū craditimirum mi- nimum.**
+- **Ceŭiciū exaltationis Hesṭiū**
+- **& mysterium.**
+- **Ceŭiciū & īficiū Thaṭ Ediū ce𑀔icūtionis nota est 900.**
+- **Ceŭiciū lippis in cālo vi.**
+- **Ceŭiciū lippis et lacūdī evangelicē contra ionī chrislīnum notaō parcificā ta ǀ per iraciā Patiradō.**
+- **Ceŭiciū lippis magdēlicōs in nocia Flīzcolyma notā.**
+
+## D
+
+- **Damoninīn meridonut**
+- **Malhematī.**
+- **Damalcus regia Malhemt it sfendarus Optics.**
+- **Damalcus Kristitalire**
+- **Confłuhtio lis**
+- **Damalcus vobis a Tanēci mis cest.**
+- **Dam Seniōr context: Ahm lam terris animal.**
+- **Dam teibus majisīce at Res na laters in Ērāstī ḥāfīt.**
+- **D. D.**
+- **Dan serioris nisteriis. 204. Pasid prophetiauit de**
+- **Dan anno 1576. tractat in 791. radix & Stella na**
+- **Cibatu. infinita contra Iunium**
+- **Dan filiat, hoc est. Andree 732. Imperatoris Romanis.**
+- **Daniel dx levracia, d. David Red & Christus in musica. Rege Malachareaco conu-**
+- **David alter sesceded Rodolphi 169. QUIA non de Imp. M. Sati. Salomonis, Roban dilli & D. Res da. inter Stellas 1203 est.**
+- **David fit & f. l. i. de 108. David Rel. sop. Saillins. puale secundum numes Renax D. Malonieti fi nitis.**
+- **David capitul fenoreum 731. Laco in stinus regnans manus. David size cum sestrigenta**
+- **David sicadillage R.b. 104.8. 1590: de vac flamm.**
+- **David mischus Lacera 96. zeiger, in sordinium tempis.**
+- **David miserioris residit. 618. Paidis si servientes de**
+- **& ego intendesis m. 359. David ex discensiorum in nisinia diuin.**
+- **Paids de redimistis post 741. cum munci fil triumph naturalibus animalibus st. inera Basis & Milla.**
+- **Paidis disertius ad sim. 2. Paidis claues annis, 1593.**
+- **Paidis claues aperiunt. 104.8. ib inis captis scissis**
+- **& se igitur generato pro le cerma.**
+- **Desicis nigiri novi ven visu praemuncia Stella.**
+- **Deusitis radix Haavlericia nascitur ex amoe mundo.**
+- **62, 3 [...? Feialitas Con.**
+- **Et miori [...] S. Salutationes.**
+- **Desidis regis Nida regina animis nasci hasteris ex amnis**
+- **Haavlericis.**
+- **Paulus B. Scientiue Chae desidis debatur.**
+- **Paulus tabernaculis ve aedificatur ex facto baculo.**
+- **Decem radices, filius D. neurognesis et i.**
+- **Decima disinta 1. Lena.**
+- **De cado seendere.**
+- **Dei & treviti nomen <...> in a^/liero submira.**
+- **Dei b. brevis regnum os**
+- **Jodla.**
+- **Dei filiis.**
+- **Dei filiis in fine seculi ad**
+- **vivim.**
+- **Dei filiis inienis.**
+- **Dei 180, id St. Friedl.**
+- **Dei indicium in sphere signo forma seunda filii setunda secundo.**
+- **Dei stromi.**
+- **Dei viní jenius Félix.**
+- **Deorum Praestilianum**
+- **Stella.**
+- **Deorum servium gliris.**
+- **Orion.**
+- **Deus altis St. Hons apoc ath.**
+- **Deus Richiis habitati eina horinabis exsist.**
+- **Andreas af templo.**
+- **Deus explicatur et spiritus intus felix scrito.**
+- **Deus diuturnem Plato mater nois.**
+- **Deus evisert Babyloren non tam aris, juan tam potencita.**
+- **Deus explicat seu temth.**
+- **Non Papa & Malumet intention.**
+- **Pluss Amore dat filio hi rich. [Not filled in].**
+- **Deus vales.**
+- **Deus reverentiam, del**
+- **Clidiam.**
+- **Urichia Puraditi.**
+- **Referendo de cado.**
+- **Descriptio & missierium**
+- **Stella Conata.**
+- **Descriptio mi­stica aius phoenix.**
+- **Descriptio Christi, ex patris.**
+- **Delecta pota pro terra.**
+- **Deus exasor in Antichristica res.**
+- **Delecta pota sub lingua nouris inter lidia.**
+- **D. [Folios.]**
+- **Defectio Cados. 300.**
+- **Defixationes i.e. fort. 856.**
+- **Syllogismum primae Mon. 339.**
+- **Reflexiones adientes. 129.**
+- **Deus[t] agat[um] Aicerin[ae], in[d]ico pronuntians Rom. 147.**
+- **De fractio nob. & Regni 837.**
+- **Conjunctiones planit. 56.**
+- **Deviations Babuloniam 187. maratibus praecunctia Stell. 201.**
+- **Recalcitrationis nota mihi [...].**
+- **Dei sapienti[ae] St[ud] Rudolf[us] 569. ab usum Anticristis 102.**
+- **Kall[us] Spiritus max[im]us 59. era de Thaminis procreat. 102.**
+- **Rei combinationis spirit[alis]. 687.**
+- **Dissensu auctore Orion [...].**
+- **Dei[us] tabulis hab[itus] se praeparat[um] 147.**
+- **Huc const.[it]ionis O. [...].**
+- **Dięcia[is] inidimium Inspexi 965. rea[is]. 437.**
+- **Diversim ab pacis[is] [...].**
+- **Dictionem posteanum 1025.**
+- **D. 4.**
+- **Heri ann. Baltheim kypus 199.**
+- **Dimensiones statarum nu­me­ra­ tarum animalium. 8.**
+- **Dictionum diversi imperi, quae Romani in bono tra­di­ tione.**
+- **Dominicum regni. Aeschin­ essa.**
+- **Diocletianus Imp. refri­ geris ab­sur­dus.**
+- **Diocletianus Imp. inter Ba­ tiboni­ gigan­ tes.**
+- **Disper­sio de Elia­copo dicens.**
+- **Dichonomia Libia.**
+- **Ditis Sapientia.**
+- **Di­cifio tra­gentae tabulae.**
+- **Dico­linis Cori­stipme.**
+- **Di­cili­bis influentiis.**
+- **Afestis Aebida.**
+- **Religiosus animus.**
+- **Diti­um re­gis­ mus.**
+- **Dicas simulaceus Lucini­ ci­ bus.**
+- **Dicas i­nec­ traliceus ge­nios.**
+- **Di­ctio Babyloni­ sis.**
+- **Di­ari­um in­ laude sui Adi­to, cha­tera Lu­lis.**
+- **Doctrina De ortho Malo, noted efficac­ pro­phetae.**
+- **Doctrina Elia­cisi­ ranea.**
+- **Principiis & Dictionibus, lem Joannis­doris. 246.**
+- **Dominantor Janius in ju­ dicatu amoris.**
+- **Dominador min­ di, & puncto capti­verum et remal­ terium. 258.**
+- **Dominator ter­ca dicta­tur. Agnis vi­ kinde de Edom. 570.**
+- **Dominator e­racottis.**
+- **Dominator terecis.**
+- **Dominator ter­ra Jodici. 533.**
+- **Dominator ter­da na­tira de­concor­ dicentiis. 208.**
+- **Dominat­or minor. iste re­ ruptici et non vati­fici. A­mollit Sancti­ cos.**
+- **Dominator ter­ra dictit in holo vir­ tu­um. 206.**
+- **Domini­cors deci­ tius.**
+- **Dominators tursas de­ praefectis hui­us.**
+- **Dominis co­mi­ patris in fon­do as­cendent.**
+- **Sic.**
+- **D­octori.**
+- **D­omini­ resis. fefectum.**
+- **Rhitor Alexandrütem**
+- **Er Hüglique Parensamt de Walthinis Lithinvs**
+- **Iae Clausi: Spina Sier hie: Alrea: Medis.**
+- **B68. Iae Clavis Scientiae, &**
+- **Paidiib flibis ddebanti**
+- **Iae Clavone vinere in**
+- **Iae Vote in Cale.**
+- **Masdecir Apoloblos (heris his mane dritt**
+- **Prudeirin nueflos branafi placabili, ad amnis**
+- **Eng[el] 159** (Angel, year 159)
+- **Dio Cheribin**
+- **Dies Evangelici Tefes**
+- **Dies Indubia miinda in**
+- **Occident, & Occidente**
+- **Dies Imperia Orientale bis Occidentala nota!**
+- **Ad hisla nierzeochiê.**
+- **Dies Apolô. cum Tefedi miniari, residet. Uai siren cretic in parjb.**
+- **Na vega. Naxÿs. 121.**
+- **Abandonde Hrdel, tfis**
+- **Imbeiramentis in Occidente**
+- **Dies Tefes Poer. Elame, ê**
+- **Eltsan. Fodrelles Æniferae.**
+- **Pädo Tottles in Romaro san pecio ascendent ad Alban.**
+- **Deloctarum Antichristi Honor nis precati & sity ectionis**
+- **Alipum eredit Doctiami.**
+- **Dicaran Gloriam Alcalare miffieina.**
+- **Püeian latronibus, & Neiri hi orieles nifricinora.**
+- **Dicarum teflium ciangue**
+- **Nicorum tipis.**
+- **Deloctarum Afrian asiftifino.**
+- **Colum barbarian tmina di**
+- **Etytione.**
+- **Roderen tì Chian & referre**
+- **Tonis Prina tipis Marcis.**
+- **Dicarum tì Siafin tipis Al lias.**
+- **Duais Friderici Witonbergi qui mire mystica condition.**
+- **Päth. acumentus (heigh).**
+- **Päth. Chefl. nathritius.**
+- **Päth. circlectitionis talon eum feris.**
+- **Päth. Cristus magnan &**
+- **Päth. elax aluis affricani ingieris.**
+- **Päth. experimium Babion ex mere Iris.**
+- **Päth. salitia treinis tentorida.**
+- **Päth. referentio specialis**
+- **& generalis.**
+
+## E
+
+- **Ecclesia praedicationis atrum Oettersis 62.**
+- **Ecclesia Geocartim extra**
+- **Ronnam Ecclesiam 279.**
+- **Ecclesia Hierosolymita et**
+- **Centhicos Cthol. et filiis**
+- **Evangelicis 621.**
+- **Ecclesia Immanuelsum**
+- **Ecclesia & Imperium pro**
+- **Anna 715.** (St. Anne, year 715)
+- **Ecclesia & Imperiis mis miscis, applicatis [...]**
+- **Ecclesia Orientalis & Occi.**
+- **Ecclesia Imperialis 236.**
+- **Ecclesia Pella typus Ecclesiae**
+- **Evangelicae 186.**
+- **Ecclesia Philadelphia 398.**
+- **Ecclesia Romana ligitur cuntatus Solis 61.**
+- **Ecclesia Romana cur et temporis Solis 71.**
+- **Ecclesia Romana ad viso charta sarda 121.**
+- **Ecclesia Romana ad viso charta 979.**
+- **Ecclesia Sterilis**
+- **Ecclesia Britanna typis 673.**
+- **Ecclesia Mathematica typis of**
+- **Jesus 343.** (Jesus, cross-ref 343)
+- **Ecclesia Militiers filius miseris typicis 843.**
+- **Ecclesia pari nuinis nocuis. 592.**
+- **Ecclesia Illae aliquanim. 157.**
+- **Ecclesia brisinatica Epist.ep**
+- **Ecclesiae prostantini doctrina 1494.**
+- **Martinius Litherius**
+- **Ecclesia renovata Stella**
+- **S. Peccera 355.**
+- **Ecclesia reférmata expensis sine charta romani 1602 66.**
+- **Ecclesia Romana - dominante 715.**
+- **Admiracorum Ecclesia 184.**
+- **Ecclesiae veteris praecedens nonda. 1730.**
+- **Ecclesiarum & reponi­cion**
+- **Antichristi desctis­to post**
+- **Rodulphum II. Imp. Rom. 569.**
+- **Ecclesiarum & minido res.**
+- **Fauatratio. 592.**
+- **Ecclesiae homines viti.**
+- **Jadibra hancdius diviso. 1281.**
+- **Ecclesiae finalis. 1291.**
+- **Ecclesiae finiti principali­bus. 1241.**
+- **Eden 357.** (Eden, cross-ref 357)
+- **Elodi exist­o­mine a do mundo post annunt Christi 16. 289.**
+- **Eden pro Arabai. 721.**
+- **Eden destinatae mistrisia. 721.**
+- **Eden rebid ad ecclesiam minid salem. 69.**
+- **Eden filius Jace Abnis. 1199.**
+- **Edomis hos tiris. 759.**
+- **Egresius Saliatoris. 553.**
+- **Exaltatis da calo dir e­di­ tus in Saronia. 1123.**
+- **Elakim, j. G. Deus refu­gi­ tionis 1047.**
+- **Elias & Elies intens confero tire di­visu tefisis. 215.**
+- **Eliazius Propheta à pi­ce­ris e­su Samaritano. 276.**
+- **Elisaeus Propheta Jelifínis. 726.**
+- **Elisii modo dicatione protivi**
+- **Ediphus Ucei erit. 2013.**
+- **Ediphus Evangelisti videl. 2071.**
+- **Ead forma radaces laudis. 811.**
+- **Ediphus offician 127.**
+- **Ediphus Romanorum & 151.**
+- **Ephraimiorum in 141.**
+- **Ephraim Episcopus in 210.**
+- **Ephraimiorum minori. 181.**
+- **Ephraimuis, Machia gra­pi­ca. 789.**
+- **E F**
+- **Evangelica Ecclesia in hied.**
+- **Evangelica Ecclesia gen.**
+- **Evangelica Ecclesia.**
+- **Evangelica Ecclesia hab.**
+- **Evangelica Ecclesia de.**
+- **Evangelica mulier.**
+- **Evangelica professioris orum.**
+- **Evangelica Ecclesia (con).**
+- **Evangelica Ecclesia rek.**
+- **Evangelica Ecclesia de.**
+- **Evangelica Ecclesia lib.**
+- **Evangelica Ecclesia fil.**
+- **Evangelica Ecclesia Ptolema.**
+- **Evangelica Ecclesia typis.**
+- **Evangelica Ecclesia ...**
+- **Exterius a tec i situm pro Ma homet propheta: Henneo Graeci eccle sja.**
+- **Extermi indici imago in coelo.**
+- **Ezechia regis Juda dinitium regni.**
+- **Ezechia regis regni ani produciunt annos nativitatis Adolphi S. In. Rom. & Heinrici 4. Reg. i t. nat. & Naemare.**
+
+## F
+
+- **Tabion haereticus.**
+- **Ecclesia corporis capitis.**
+- **Ecclesia corpus triche.**
+- **Ecclesia Evangelica pro**
+- **Astichia.**
+- **Ecclesia Evangelica Ger- tina.**
+- **Ecclesia Evangelica in fe corde viadens.**
+- **Ecclesia Evangelica partim es Postollinica.**
+- **Evangelici cruce fenati sunt Lutherani & Zwingliani et vacand.**
+- **Evangelici darabuntur ex mandato seus Praefidentis.**
+- **Evangelici die Tefles**
+- **Evangelici honinos balz.**
+- **Evangelici honinos in in die Glaedconium Bonum.**
+- **Evangelici honinos ex istb libb non extem inffr.**
+- **Evangelici honinos nont.**
+- **Evangelici sacramentis et tribulatione illa miserabili**
+- **Evangelici sacerfabri atque Hopsitalis.**
+- **Evangelici apostolicos et qualis apparitionem indidcin.**
+- **Evangelici rasiunt Ba.**
+- **Evangelici at profectu tertiariae.**
+- **Evangelici sunt batztf ann. D. 1620 J.**
+- **Evangelicorum charakter.**
+- **Evangelicorum cals.**
+- **Evangelicorum conditionis fundameritum.**
+- **Exempla resurrectionis prima.**
+- **Exercitia elangeliū praēdicabit Diū Deǫ.**
+- **Exercitia in coetů & supernies conflatan.**
+- **Exercitia Mahomettis & Patriʃiis contra mogû ratum regem David.**
+- **Exercitio Mahonettis 𝔱 𝔰 𝔣 𝔟 enferas Redēnatus.**
+- **Exercitia Mahonettis dia loco 𝔡 𝔢 𝔯 𝔣.**
+- **Coniunctis interfocus lur ʃū & Adibit.**
+- **Exercitia 𝔂 𝔡 𝔲 𝔵 𝔰 aere.**
+- **Exempla epicri Mus.**
+- **Exercitia Eraciusʃubōs nos mundum Marianum Latinǽ, spiralis.**
+- **Exercitia Sicilē dicam 𝔞𝔯 𝔤 𝔫 𝔟 gentu.**
+- **Sicilia geral bene individualiter.**
+- **Sicilia 𝔤.**
+- **Salvatere et exercitia cū 𝔭 𝔰.**
+- **Exercitio morae.**
+- **Exercitia halpī 𝔸 𝔯 𝔬 𝔫 𝔦 𝔯 𝔥 habentib.**
+- **Agnis Agni visibilit.**
+- **Agnis Moysi Mercedis in faciem necresin.**
+- **Agnis mirifici sub Leone in Philadelphia.**
+- **Agnis novi ministerii anno Christi 62.**
+- **Funnemoth et Naelchus meis.**
+- **Familia Othonorum ridic tieoriam medi.**
+- **Taroch viri.**
+- **Taranunda.**
+- **Trice Rex.**
+- **Taurinelli Aprilis fatalis anni 1620. M. naem. ruini.**
+- **Tab.**
+- **Thomae de jure Babylon**
+- **Forma jurea Babylon. & Ægyptiis**
+- **Zodiacatores Babylonica meretricibus cum profectione.**
+- **Foris Angeliis praecipuis, in Sophia praefluidemi cum dato.**
+- **Foris Reg. Liÿged in Leo ne Gentilis.**
+- **Cudendo celi pro Impe rio Romano & Papificio.**
+- **Dudum baci fac. ins nec ist.**
+- **Francis a Francoensius.**
+- **Regis Sidi. di.**
+- **Franc. Sint cruce, signo**
+- **Franc. Sint Moditina.**
+- **Francia defulis**
+- **Francia Oriental.**
+- **Francia regni iisf. ge rit livali.**
+- **Francia & Saracenia lira.**
+- **Francisco nono dux de obedientia.**
+- **Francisco regi. initi.**
+- **Francisco regni. initi.**
+- **Ex Coni. & Chalda conc.**
+- **Franciscum & Teutoniconf. tipica confederatio.**
+- **Francis Celsus impera re casti neifer.**
+- **60. Taruini Sanguan**
+- **Francis riamfrus Galliae.**
+- **Fridericus Dux Victor bergiuis. 12.60. 12.61. 134.**
+- **Fridericus Dux Wictor- bergius Eius ordin.**
+- **Regis Teaser & t'agiis.**
+- **Fridericus Dux Wictor bergeius nupisius Gideo.**
+- **Fridericus Dux Wictor bergius respitit. conferens his Stela nudi anno 3.**
+- **F. G. cum regg Albin a6tusby. 1251.**
+- **Friderici Dux Wüttenberg griis ragg Stadlarara pro muris, natis anno 1570. 1252.**
+- **Friderici Dux Wüttenberg gici character in Episto**
+- **Friderici Dux Wüttenberg gerti conditio nixi nuft.**
+- **Friderici Dux Wüttenberg bergius fides in valle Gol- fbat.**
+- **Friderici 2: Ind. filiis**
+- **Friderici L. Lagonac;**
+- **Hiberius Anglicus montes irfindt in Rha-**
+- **Elias**
+- **Friderici Dux Wüttenberg**
+- **Georgii Archiducis gallium administratum a Gallis probiiorum C. aerean oris**
+- **Gedeonis Dux Wüttenberg**
+- **Gedeonis Dux Friderici Dux**
+- **Wüttenveigins misficius 142.**
+
+## G
+
+- **Gentium Ecclesia Cĩangé licet.**
+- **Gentium Ecclesia initium in secundo adventu christi ab anno 1590 - 1600**
+- **Gentium 180. dedicat.**
+- **Adrianum Romanum**
+- **Gentium refutator est**
+- **Abraham in Leone Gentium.**
+- **Gentium fanitas tradit de anno christi 150.**
+- **Gens Vadi & Stella anis**
+- **Geometriae exaris**
+- **St. Georgius Edetis**
+- **Gladii mũnif. Helisae capitator numerorum**
+- **Glady. lio, Ecclesiasticus &**
+- **Gladius amoes.**
+- **Gladii seculares interdis**
+- **S. Ecclesiae thesauros.**
+- **Gladius veragi parte audios.**
+- **Gloriam Dei onores potis.**
+- **Graecus Fridericus rediuit vis refutator mundis.**
+- **Go & Magno. iniciunt in secundo adventi chris.**
+- **G. H.**
+- **Gracorisum Ecclesia extea 279.**
+- **Gracorisum Principes 127.**
+- **Gracorisum Principes pro 1704.**
+- **Evangelicorum hereticos 169.**
+- **Gracorisum nomen (critici 47.**
+- **Gerae (Liber) 1.**
+- **[...] & foris credidits [...]**
+- **Grande Photiz 56.**
+- **Germani, - Ilud [...] 882. subternationi hominis 593.**
+- **[...] non est 313.**
+- **Gaius Rex 213.**
+- **Gigantes, id est Nephilim 356.**
+- **Gigantes, id est Nephilim 356.**
+- **Gigantum Orientalis 368.**
+- **Erebos Constantinopolis 368.**
+
+## H
+
+- **Habibiti Christis cum 1047. hominibus exigits, [...] de bello Deu et 239.**
+- **Hereticorum dominii est 89.**
+- **Helias [...].**
+- **Hereticatis Christis et in, 1207.**
+- **Hebdomades 63. 440.** (Seventy weeks — Daniel 9)
+- **Hebdomadis primmi Rex 440.**
+- **Sa[d] 440.** [?] (Garbled)
+- **Held, Lueifer 312.**
+- **Helias propheta, & Iettis fuendi consiementia**
+- **Helias tres**
+- **Helias ad calos rectius**
+- **Helias & Heladiae conferentia**
+- **Isti fuendi**
+- **Helias in igne eueri ad adorem aedi**
+- **Helias fundatus ex & totis mei Sin. Martinius**
+- **Helius**
+- **Helias propheta reditus**
+- **Helias propheta typis ide neuen Tifflin.**
+- **Helias propheta ipsius**
+- **Eimapatolona Sacerdos**
+- **Atlas Sacerdos**
+- **Helias tertius venturus**
+- **Helias; id est, haereditas**
+- **Dominini**
+- **Heliopolix condit Onus**
+- **Sacerdos**
+- **Heliopolis, Civitatis Solis**
+- **& citis Romanae aeie.**
+- **Heliopolitanos Sacerdos**
+- **Phoxinum indificat nidra**
+- **Helicas hproheta alpis rei misterah reum D.**
+- **Heinrici & regis Maari annis futilis, cum origone regni Munari.**
+- **Heinrici D. Regi Maari**
+- **& Franciae, Jafaictis.**
+- **Heinrici D. Regi Maari civi & Franciae, naturatis.**
+- **Atinrici & Regi Mayari ca. & Rodolpho D. Imperio omini nivilitatitis excani regis Exchie.**
+- **Heinrici 3. regis Mariae**
+- **Francicae, (Padre Atei) reniciis a. Aeduanah.**
+- **Heinrici 4. Hahriane rex de abis Aher.**
+- **Atinrici 3. Mayari**
+- **& Franciae rex, An. et Sanzon.**
+- **Heinricius - P. Hauser rea ome hact. 1589 tam.**
+- **Aghelito Tacinam.**
+- **Heinricius 5. Houdiere &**
+- **Francicae R. & Rad. siens i. Inf. lateret in 1.**
+- **Heinricius - Mayari marine rex, & Rodolphi imperatoris &.**
+- **Heinricius 4. Haudarec**
+- **& Franciae D., cit. Friedrich vic Wittenveltspic, catius an. amvor Imperij Frederici**
+- **& Imperatoris.**
+- **Heinricius - That**
+- **Franciae rex, that in wrote.**
+- **Heinricius - D. Mauler rex, ex defiliocium, &**
+- **Fridricius i. Inf.**
+- **Atnrici, pess Hausers id est**
+- **Civitas Solis**
+- **Harmaphordatlis gilians**
+- **Mareci.**
+- **Hierolytum Obscurum ex 86.**
+- **Afflore, K. Voneris, Lichi 343.**
+- **Juli miseri, dies notari.**
+- **Herculeo comita 543.**
+- **Hierichontis scriptrage 256.**
+- **Hierichontis & Lima justification**
+- **Hierichontis forte die**
+- **Hierichontis rofa 249.**
+- **Hierichontis reditis 456.**
+- **Hierichontis Avelia 259. exterior talents. Impervia e 1565, 1572.**
+- **Hierolytum novum petri.**
+- **Hierolytum in his regnos 738.**
+- **Hierolytum a Rona 453.**
+- **Hierolytum a Romana 138.**
+- **Hierolytum spaghetti ad 259.**
+- **Hierolytum latilibido 159.**
+- **Hierolytima nove intitium 639.**
+- **Hierolytima novum. 744.**
+- **Hierolytima nibh focates 457.**
+- **Hierolytima plicatus 637.**
+- **Hierolytima convolvant 861.**
+- **Hierolytima obmutato 814.**
+- **Hierolytima cum adaptronis 546.**
+- **Hierolytima mormum Elipdis 418.**
+- **Hierolytima moribund problem. 1589.**
+- **Hierolytima hoc Barbedcos 62. 161.**
+- **Hicarius Occidentis, et fruis**
+- **Orientis**
+- **Hispania fides Philos.**
+- **Hispania et Celsiberia.**
+- **Hispania expugnata Gothis.**
+- **Hispaniae arces ex Tital.**
+- **Misericordium & Saracenos eadem reginâ Iblal.**
+- **Misericordia Hispaniae brevi affecta in templo configur.**
+- **Hominis Evangelici baptizati.**
+- **Hominis Evangelici in**
+- **Ecclesia Graecotestis jani**
+- **Hominis Evangelicorum exist. numuldis ad habilatione illa mirisgiebil.**
+- **Hominis Evangelici in tres, non extra quatuor.**
+- **Hominis olim immolati**
+- **Africi.**
+- **Hominis peccato ef fabulus annus 1620.**
+- **Quin hominibus habitabil**
+- **Hominis peccati, per aff. intercedentibus initio in annus 1590.**
+- **Hominis peccati, per st. tichesti actus primae sinit.**
+- **Hora una pro anno Christi 1620**
+- **Hora pro avibus 234.**
+- **Hora in Stella coniata 252.**
+- **Hora sferalis & puella. 212.**
+- **Affectum Nona, & tertie suffrigerii. 265.**
+- **Morolius Abbas miserabilis 420.**
+- **Horologium & manetium 276.**
+- **Harmonae generationis templi 1039.**
+- **Adter trinitarios & catechistas cum zelo. 883.**
+- **Nativitas interfenoeis. 183.**
+- **Humerus nimis vidi affigitur 529.**
+- **Adficti misericordie 1077.**
+- **Jacobi patriarcha pro sui didis. 547.**
+- **Jacobi pro populo Edom. 512.**
+- **Jacobi & Eli circuite 582.**
+- **Jacobi & Eli patriarcae 682.**
+- **Jacobus in sinum 314.**
+- **Aliquibus minoriis spoliis vincitur. 561.**
+- **Jacobi patriarcha misi. 567.**
+- **Jacobi patriarcha ferag. 580.**
+- **I. [Folio]**
+- **Versich pro intra Sancta cericia! 63.**
+- **Iacob. iden filius Gedeonis. 127.**
+- **Iacob. et Robaham ina- [...] go regitur cum meretcdc 472.**
+- **Babylonica fornicantium. 217.**
+- **Ilese virgo dicit Ing. 118. lese virgo quando indeti. 118. lese virgo infundon. 218. lese virgo iustin. 118.**
+- **Iesus virgo finem [...]**
+- **Da[vi]d 297.** (David, cross-ref 297)
+- **Ile ite parcier. 88.**
+- **Iessododicius Mahame [...]**
+- **Fatas lira predict. 648.**
+- **Pro ignea, et Alphacrri, 48. ia, Adeqoci prodibos nat. 297.**
+- **Ione, culturo dia in [...] cati vise 388. jardi Regioni vinisin. 388.**
+- **Iardi Regioni nisia. 68.**
+- **Iardi trigoni selti uno 299.**
+- **Sadrur Gigionis Chiris vocat. [...]**
+- **Iones trigoni. 889.**
+- **Iones trigoni rotat [...]**
+- **Instauticum muri. 873.**
+- **Iesus & his tabliatus. [...] enis cotnii sacraficii. [...]**
+- **Iles ministerium. 610. 899.**
+
+## I
+
+- **Ambeatorum Mathematum, 2.8. tertii huius nos.**
+- **Impefores Romani initia rei, ex omnib Rodolphi in interadteoris.**
+- **Ambeji Romani intvres in Italia.**
+- **Ambeji Romani rithia novina.**
+- **Ambeji Romani & Mairarn tnis recori mtlka Sculis.**
+- **Ambeji Romani rithis.**
+- **Impefores Romani celi Homi me animalis prauis.**
+- **Imperatorum Romanorum universis et 1.35**
+- **Imperatorum Romanorum prin.**
+- **Impeatorum Romanorum vitii et Romanofrfs Rg.**
+- **Impefores Romaniis.**
+- **Statificarum nund. et.**
+- **Abeorciis, cedorant.**
+- **Elaboricis sors.**
+- **Ambeji Romani per celsis 1820.**
+- **Imperatori Romani in donis**
+- **Arisace indipedent cisiri.**
+- **Imperium & Ecclesiam, in totius in mediis re, 218.**
+- **Imperium. Indicationum nu, 237.**
+- **Imperium. Mathematicum, 542.**
+- **Imperium. Mathematicum, 56.**
+- **Imperium. Mathematicum, 56.**
+- **Imperium. Oriental, 210.**
+- **Imperium. Oriental, 276.**
+- **Imperium. Oriental, 66.**
+- **Imperium. Oriental & Caelestis, 461.**
+- **Imperium. Oriental. 45.**
+- **Imperium. Romanum, 196.**
+- **Imperium. Romanum, 538.**
+- **Imperium. Romanum, 218.**
+- **Imperium. Romanum, 796.**
+- **Imperium. Romanum, 120.**
+- **Imperium. Romanum, 50.**
+- **Imperium. Romanum, 130.**
+- **Imperium. Romanum, 81.**
+- **Imperium. Sacra, 78.**
+- **Infernatio libri insulis & praeiü.**
+- **Infernatio libri insulis & praeiü.**
+- **Infernatio stiticationem.**
+- **Infernatio Virgine abser oces fru men ords Ordolysium in die Pal.**
+- **Minimus cruciis Christi Bachus, Deus volentatis in.**
+- **In Italia per mundo bonitatis.**
+- **In Italia prostigia.**
+- **In chti Liciari D. Petro viri animus carare Aristaeus Babylonis regem.**
+- **In Italia caleto Gericuntis quae fati amni 250 et annum 250.**
+- **In Ittian Imbergi Roman.**
+- **In Ittian Mareti, & Bonifatii.**
+- **In Ittian mihi new.**
+- **In Ittian nova Hierocolyni, in anno 250.**
+- **In Ittian regni Mardacei.**
+- **In Torsilum Vadi cantici.**
+- **In Ittian regni Sarsaeo & Sic deden prophetas.**
+- **In Aethiopidia Christi.**
+- **In Iettaleflia Christi.**
+- **In praefatory voxcum.**
+- **Anteitus Romanae Insulae rist in Italia**
+- **Anteitus Vitini Ponti suis tipis et ejus Jacobus mimoris Apostol.**
+- **Interceiscinis Heraldisin- atia & rescriptiorum nunca id alibi Stella mactina.**
+- **Antius & foris iedicti Libri concordis**
+- **Antius & foris iedicti Li- bri gignalia pestiferi**
+- **Antius & foris iedicti Li bex excretitis anno 1629.**
+- **Antius & foris iedicti Libri specificate laude David muisere kardinalis, eiri si & Papa.**
+- **Iachimi albatris vaticin una in irestit Papae**
+- **Joannis baptistae St. U- laci.**
+- **Joannis Alti Evangelici.**
+- **Joannis a St. Bariat.**
+- **Joannis a St. Mari.**
+- **Joannis Georgius Marchio**
+- **Brandenburspecianis fil Giesco jus Æstebciniensis.**
+- **Joannis Alti narrativ.**
+- **[page number] 86.**
+- **Joannis Alti Evangelii contra falsum adam exe; reliquum**
+- **[page number] 1380.**
+- **Joannis Alti. vivente; fuis Constantia communis aris, cauthis fatis anti- misieris.**
+- **[page number] 267.**
+- **Joannis Alti historia de iis, versum fatis iis**
+- **Anast. St Pater Redia.**
+- **[page number] 814.**
+- **Joannis alt ab, Cthbold**
+- **[page number] 319.**
+- **Josaphat una stcab sociis bellis.**
+- **[page number] 2733.**
+- **Josaphat regis Valliis**
+- **[page number] 258.**
+- **Josaphat rex ad ipsis**
+- **[page number] 372.**
+- **Josaphatica Vallis.**
+- **Josaphatica Vallis bibatis.**
+- **Josaphatica Vallis circu- laris**
+- **[page number] 586.**
+- **Josaphatica vallis comm.**
+- **[page number] 442.**
+- **Josaphatica vallis prae;**
+- **[page number] 1981.**
+- **Joseph Patriancha filius**
+- **[page number] 370.**
+- **Joseph Patriancha & Sid bibi, ipsis Regis Locu.**
+- **[page number] 2190.**
+- **Joseph Patriancha miserile in tuna P. S. p. [...] anni disparii ingressi**
+- **Joseph Patriciaena 1795 über das Land zu hertic st niedlicher Edine**
+- **Joseph Salvatore mundi cisus reveneira geberia tem.**
+- **Joseph & Sophia: admonition.**
+- **Joseph, der so nun munde prophieta Jacob patriae.**
+- **Sophia regis Mida, ladis vörse wid. Lais. ringere.**
+- **Gaius vatis müsset filius Abrah. na**
+- **Gaius Rana, daf allele.**
+- **Sonus Italia.**
+- **Gaius regina Histat. uenelidar dide babylonia**
+- **Sophia sed nanimindus. madianicì.**
+- **Sophias regis reudinis**
+- **Jardi [...] Patriciis st. der Neide Peter [...]**
+- **Jois frater Höltz, [...]**
+- **[...] legraca Ablo, est meina Brief. nenné & Gaius terak. eat für affen vassenregin**
+- **[...] heidis mirveir.**
+- **Indiae ny Dracilis regnorum typica jubilior.**
+- **Inter gentiors unifierion**
+- **Indices vos hama lypus Roma in Italia.**
+- **Indices post referere cionem fragmaria conuergentium.**
+- **Indices prophetant mystice ignorantes.**
+- **Loci ad ministerio mundo imperact datid.**
+- **Indice om coniucio ad duci in dissident faciendo.**
+- **Meneresin regnum in exist influencium.**
+- **Olente & Occidental.**
+- **Index Sampson in actual typis regis deiastituri en rem machin.**
+- **Dices in dissident faciendo truct.**
+- **Indici alboreni imago.**
+- **Isidori res, onfeur.**
+- **Indicia peti in referre.**
+- **Atone has fil tefe findo.**
+- **Milianus Insulator apoia typus Mahometi.**
+- **Uiteris Belais amphidore.**
+- **Babyloniae: Hine recte Babylonis.**
+
+## L
+
+- **Abithis Id Christi: Ab.**
+- **Catilitas solis.**
+- **Uiseni comparativae Christi.**
+- **Inferius Dei filiis.**
+- **Abithis & creature. Pa.**
+- **Langeritius.**
+- **Angwomanis bibem prem.**
+- **Lapis angularis, wipes dia & Sternum.**
+- **Lapis ficturis: Midertringe venurian.**
+- **Lapis loci sitis (keri).**
+- **Etis officidil & angarius in 180 & 180.**
+- **Lapis offensionis.**
+- **Vagiunata, petra. Sela.**
+- **Caelitis Aurea nota anti.**
+- **Actorium disorciam & (muth ordinis mysticism).**
+- **1eena.**
+- **Lec. Salomonis citis.**
+- **Regilam pontificis in dies ins. Romani.**
+- **Monris exsist.**
+- **Legi hominis peccata, qui**
+- **Ad haec recepta nova RSD**
+- **Dass leo dat. I. J. d. Heid Mediac cel. pro Rons. go continent deredicate**
+- **Judam Romanum leo conditione liberatio c. cel. Africa.**
+- **Vis redactione animalis.**
+- **Filiorum & sidius norrinis in**
+- **Ro. Apud i nosam proficiscens. er Rons. de filios adu ti fisci dicit Pap. Rom.**
+- **Maithar**
+- **Leicit Sacerdotii gelitus matis**
+- **A. Magist missica.**
+- **Ederum mos**
+- **De libano Phoenix radium soli, & Metropolitano Sal. liberti**
+- **Liber diis**
+- **Liber intus & foris scriptis dejecturi anno 1590**
+- **Liber intus & foris scriptis explicatur, nullo**
+- **Liber pius, hoc**
+- **Liber principium petibilis sunt, sui dition, libertis**
+- **Liber vita digitalis liber**
+- **Liber intus & foris scriptis acdate. Gennas**
+- **Liber mirifici scriptis dicit in laboris**
+- **Liberality Ecclesiae Riemige gian ad Leonem Gentilium**
+- **Liberatio Notre Dame Emerens**
+- **Liber rebus miscellaneis**
+- **Dissertationes Meae manuductis**
+- **Stella nova, & Cognita.**
+- **Liber aberti**
+- **Liber diis acari**
+- **Liber intus & foris scriptis**
+- **Afflactio theoria**
+- **Liber intus & foris scriptis proponimus.**
+- **Liber intus & foris scriptis cognitione morum.**
+- **Libri intit. & foris Greg.**
+- **Aki seciandum nonnen**
+- **Libri intit. & foris scifici gispracall. Ftern**
+- **Libri vita capit. el numer. 2. 2. 8. annis brevis 1599.**
+- **Libri intit. scrift. iam aperto, venti praefis**
+- **M. librote tatus to foris Greg.**
+- **Mo. Mundin. Mage**
+- **Libros lacros a ftie. Tlis prierus aue Seicertia**
+- **Leni dies**
+- **Daegion vitae Danitaelon**
+- **Gentilis**
+- **Idia quatuor ordinus Antonic inffinia.**
+- **Lingua mariis**
+- **Sidi merita a petis risis pro amis ipapeadrificis reuelaticis Babylonica.**
+- **Illuminacionum & Tarchosop. vesine orig.**
+- **Dous nova Stolla foris**
+- **Orientalis**
+- **Locifacient camidibis atheru cior stionim honerum pres**
+- **[...] confalonus ruoles fre. & devantdiscernum**
+- **Lo sissifandre rapi.**
+- **143b. macia ex Beau de loli.**
+- **Pationes monge affeciuit dominis remira prechtore. pendium tempuf sub apr. 1599. vice. Ioa qdarif fae**
+- **Lira Apo Mahomedo**
+- **Splendorosetha.**
+- **Lira Apo misso cimbalo tim rewa ferencia, et**
+- **Mañaredi iam Tricia.**
+- **Mahomedica**
+- **Lira Saracenia Maho**
+- **Lira Sol. & Stella, a lo cefo perdenda**
+- **Lira Saracenia, et**
+- **Tricia, al Stella nova.**
+- **Lubarici cujce forman como estus.**
+- **Lira eberbus.**
+- **Lira de Sconorna**
+- **Lira de Hierichitis jna cicia.**
+- **Lira Sids & Stilleni.**
+- **Lira Liptica trifilx.**
+- **Lira teste in cado ripe.**
+- **Linaris annis**
+- **Aietis intebroci succedendo.**
+- **Aiemas iocoris.**
+- **Luran Imperium Rom**
+- **Alttherani et viant.**
+- **Eirianis: Evangelicis**
+- **Pandit.**
+- **Alttherane religionis et**
+- **Lexomice. cauxa exarau.**
+- **D. Luthieri anni, et Stella**
+- **Copiarte pariis annis.**
+- **1587 Germani 1573.** (Of the Germans — Luther years)
+
+## M
+
+- **Madian filius Abrahami.**
+- **Sifus Saracenziorin.**
+- **Mahaditgrunter veniretis mijifis.**
+- **Magi Orientis.**
+- **Magisteratis novis in dalam contentiores.**
+- **Magma curiatio disfu.**
+- **Magma foras pro capfitate**
+- **Babylonica, exfreit senjii.**
+- **Magma Stella de calo ca.**
+- **Manus vornis.**
+- **Magis annis finitur an chraft 1590.**
+- **Magis & Geo ieue cruicia.**
+- **Magis & Geo interstilis in dentel faciebid. (nith)**
+- **Magis & Geo fopli Mist. hominita padominatories.(**
+- **Mahomet B. Abderīnis Prōfeta ...**
+- **Mahomet in̄lidĭtis mg ... sērio Sodonīa & Gonᵃorcha ...**
+- **Mahomet z. 83. hūne ... maūns T̄berc̄ius Imperator ...**
+- **Mahomet s. T̄berc̄ium I̅n̄ ... pecator.**
+- **Mahomet maledictus prō ... photo, certis amovent ...**
+- **Mahomet nat̄us ...**
+- **Mahomet s. T̄berc̄um I̅n̄ ... pecator nat̄us ...**
+- **Mahomet p̄lēdosp̄heta in Edom ...**
+- **Mahomet p̄lēdosp̄heta ...**
+- **Alĭiis periclitant̄ius ...**
+- **Mahomet p̄lēdosp̄heta ... inter filios hominis ... inter Exygentes Babylonis ...**
+- **Mahomet p̄lēdosp̄heta ... meridiamus maniam ...**
+- **Mahomet s. ...**
+- **Jasicus Phila ... nicem ...**
+- **Mahomet s. T̄or Pharaōne ... regina in mari rēbus ... necitur legis titulos ...**
+- **Mahomet z. 83. ...**
+- **Mahomet p̄lēdosp̄heta ... suscipio I̅nātān ...**
+- **Mahometi ... ablāri remotae ... et regno ejus dolus r̄ēnes, ... festiōn̄ Christīs ...**
+- **Mahometi annūs rēgia ...**
+- **Mahometi danūs regis ...**
+- **Mahometi s. ...**
+- **Mahometi ...**
+- **Mahometi in̄rag ...**
+- **Mahometi s. Inf̄assī ...**
+- **Mahometi p̄lēdosp̄heta ...**
+- **Mahometi ...**
+- **Mahometi s. ...**
+- **Mahometi s. ...**
+- **Mahometi ...**
+- **Mahometi ...**
+- **Mahometi ...**
+- **Mahometi ...**
+- **Mahometi ...**
+- **Mahometi ...**
+- **Mahometi in ...**
+- **(Note: Text has been truncated for brevity as the page contains extensive writing. Line breaks, punctuation, and marginalia have been preserved where possible.)**
+- **Mahometici spiritus tenui. 215.**
+- **Mahometician Imperiis. 36.**
+- **Mahometician Imperiis. 210.**
+- **Mahometionis vocum. 16.**
+- **Mahometici necessariis. 291.**
+- **Mahometiciis decidicis in .**
+- **Mahometicis & Raphinitis. 1638.**
+- **Mahometiciis diecus. 79.**
+- **Mahometicis tres. 20.**
+- **Mahometichiadi. 588.**
+- **Mahometiciis fundi. 188.**
+- **Mahometiciis. [...]**
+- **Mahometiciis fomentis. 82.**
+- **Mahometiciis. 182.**
+- **Mahometiciis. 178.**
+- **Marii Elij. Palatfte. 254.**
+- **Marii Lingua. 296.**
+- **Marterij hies 21. annis 1890, 65.**
+- **Martyrii huius 21. annis 1890, 200.** (This martyrdom, 21 years)
+- **Marterij litteris misfieus. 183.**
+- **Mannona Deus dirigentium. 2409.**
+- **Martini Lutheri ab**
+- **Martini Lutheri d.**
+- **D. Martini Lutheri la- tini C. angelicorum ex A- gnostis remanentis †**
+- **D. Martini Lutheri in edito albo**
+- **D. Martini Lutheri sigenzae Rahn.**
+- **D. Martini Lutheri Ro- man ellegative**
+- **D. Martini Lutheri theologis Atilias et le- giferis.**
+- **D. Martini Lutheri ton- than alter Moyses**
+- **Martini, post introduct. praemonstrat. i.e. foren- tem erit existentia qui.**
+- **Martyns & sunt, sed caelici gyrati.**
+- **Martynii hominis cuius documentum est in fonte.**
+- **Martyniorum 1650 Liberatio mis indet Stella nova, et**
+- **Cognita.**
+- **Martyrium, & Sandtorum conspectu inter nos t amis nos hostes feminentestre pro- bant vallis fititeria.**
+- **Matilina Stella**
+- **Matildina Stella 129.**
+- **Matildina Stella ad 12 merecionis his allocutus, na- cis, res repetit.**
+- **Matildina Stella, propensio facienda adrinentis free↑.**
+- **Matildina Stella, d. de- datas contra vinorum corconditionum Romanorum.**
+- **Maximinius Imperator jipis.**
+- **Medii annus Rodolphi**
+- **Interfectores Romani.**
+- **Medietas superioris latit. et ad annos Christi 1420 [...].**
+- **Medii astralis magnificentia.**
+- **Medicina dictis rufis.**
+- **Medicis animas miserabilis.**
+- **Macedonii & Aligeriams recensent. 2o in vestis orbe.**
+- **†. Occident.**
+- **Meladi, introspecti solo rūs**
+- **Michaelis.**
+- **Evenson & liecens & et.**
+- **Aureomphs et supplicii.**
+- **Memorum horte.**
+- **Mediis de dicendo iud.**
+- **Eliore satis Christi 1570 corpus trifitum nota se- variis Babylonis.**
+- **Mores oftens pro anno**
+- **Dilecti.**
+- **Martyn Martis dies 25, ad medias rutilicus.**
+- **Memoriae novae hicc the- oligicae adis in annum schrift. 60e.**
+- **Macarii filiis 41cenaria**
+- **Aphroditis.**
+- **Hilspa (sanctificium) alid - 336.**
+- **Molabite (sal) terrae - 357.**
+- **Moabitaeium regnum - 358.**
+- **Moles (callantes) praecedente claritatis auctoris - 387.**
+- **Moloch idolis ollis - 330.**
+- **Moloch (solis) raptim fieri - 303.**
+- **Monarchas oricum - 585.**
+- **Monarcha perinis rund - 568.**
+- **Nimrodus - 219.**
+- **Monarchis perinis & vit - [...].**
+- **Monarchiam (pro) oro oratius (charactodo) - 124.**
+- **Monarchiae peinas defatis - 129.**
+- **Monarchibus mundi fatalis - 800.**
+- **Anno 1590.** (In the year 1590)
+- **Mons Haeres - 79.**
+- **Mons in diem ascendit - 106.**
+- **Mons, in diem socius à Satarra aethis - [...].**
+- **Mons Libaninis - 111.**
+- **Mons mans (et) Satis - [...].**
+- **Mons Editham horreadis - 23.**
+- **Re montibus Babylonis - 800.**
+- **Correspondentiam in publicata - [...].**
+- **Mortuorum iam rignibus annis 1590.**
+- **Moïzite Rachel - 15.**
+- **Mons (Chalif) in (tabis) unificato - 34.**
+- **Moïzites Noah annis nuj - 669.**
+- **Moïres pro marijem - 659.**
+- **Moïres regnat ad Aldan vit - 680.**
+- **Moïres cratia - 581.**
+- **Moïres trinitas nuijica, & truam re sildienn - 302.**
+- **Mortis Anti christi peak - 200.**
+- **Mdomi, Macfould - 106.**
+- **Moïzen fundo American - 100.**
+- **Moïzies Adron - 586.**
+- **Moïzies alter & rignitius - 720.**
+- **Moïzies profeta - 112.**
+- **Moïzies (&) libros - 101.**
+- **Moïzies summ? terram - 100.**
+- **Moïzies juis regio libric - 70.**
+- **Moïzes (?) affaret d'minuns - [...].**
+- **Moïzes pat remor - 69.**
+- **Moïzes (ex) spiritum - 63.**
+- **Moïzes peter nemon - 73.**
+- **Moïzes Dofhan peris remission - 634.**
+- **Minime Ecclesia Evangelica - 711.**
+- **Minime Spiritus in recreatate - 73.**
+- **Minime laudere Evangelica - 1189.**
+- **„Müllerius Ecclesiae filius no- writus typus**
+- **Müllerius filius Hominis, ie-**
+- **Christus**
+- **Mundi astrorum discrimen res sunt statiuis animalae ad theologiam Ecclesiasticam re.**
+- **Mundi facies nova fil. los**
+- **Mundi hinc, superveniens indiscriminis fructus**
+- **Mundi Imperica. post his cardinalia.**
+- **Mundi influentia coelestia fatalis 29.**
+- **Mundi meditatio novi persecutions.**
+- **Mundi reclusis.**
+- **Mundi signalis refutatori**
+- **Mundi nova facies anno**
+- **Mundi novitas & Ecclesiae**
+- **Mundi plaga in libro ruis**
+- **Mundi fictus**
+- **Mundi Primus Morabach**
+- **Mundi Primus & Ulricus**
+- **Mundi de princips Papia**
+- **Mundi regis & ordinarii traditione.**
+- **Mundi regena documenta baronum**
+- **Mundi regis, Joaquim**
+- **Mundi epidem 5.**
+- **Mundi regis ideis ejus [...]**
+- **Mundi regis acef. Sic.**
+- **Mundi regnis divinis 1625.**
+- **Mundi regnis rationis orientes, Hillebona 744.**
+- **Mundi responsa interioris 626.**
+- **Mundi regnia dulm: eluneticum ab auctariis 691.**
+- **Mundi regionis, Miserorum post nateri .**
+- **Mundi renominatio 20.**
+- **Mundi refractoria.**
+- **Mundi refractationis effanis 26.**
+- **Mundi instaurator spiritus of RED Galvare.**
+- **Mundi refectionis fidi- cases reducte.**
+- **Mundi refutationis, & int ectoris similatis michus ad Stilla relationis 814.**
+- **Mundi Sallador 500**
+- **Mundi: Terra Roman.**
+- **Mundi: Soltiture veniet**
+- **Ecclesiasticam Dan, hoeSt.**
+- **Mundi Ante Imperium 83.**
+- **Ecclesia restituet in multis.**
+- **Mundi miniditus, et ideis superatis novas Basil.**
+- **Mundi ministerius feriet**
+- **Christo in exis seciundos 243.**
+- **Animis idea Orni Ecclesiam 386.**
+- **Militis servus Pruna est 993	Miglierin deris Thoram [...]**
+- **Mildach Zabbelli 316	Miglierin satis Eidan, Cathedram**
+- **Mitationes minuti notati	873	Miglierin Crux figura hactã contat Antechristum**
+- **Mitationes reconciliorum 31	Miglierin der Herd [...]**
+- **Mildach tra t tabl. Heft si 318	Miglierin sacrofis Sta. c**
+- **Mildach Traeconstemba 23	Miglierin deris demonis**
+- **Mildach vis tenorbis tuvem 168	Miglierin pro vino fizzoritis**
+- **Misterii miseration	[...]	Miglierin et cal iaradiis**
+- **Misteria abierunt ad 12 [...]**
+- **Misteria absrpente in [...]**
+- **Misterii eas eucharistiica [...]**
+- **Misterii esibent certintis 289	Miglierin Abdyfi**
+- **Misterii euns liber [...] [...]**
+- **Misteria anno. [...] 216	Miglierin D. Martin**
+- **Misteria confessioris de fi. [...]**
+- **Misteria Danebrielis [...]**
+- **Misteria milennii [...] 63	Miglierin azl**
+- **Misterii Alpha & omega 223	Miglierin Kettlin**
+- **Misterii Aldandr. Geo. [...]**
+- **Misterii larmoris [...]**
+- **Misterii Conctare Stalla 198	Miglierin Norcari**
+- **Mys. Astron. novae & Coranae Stellaciónum**
+- **Mys. Astron. Pellas Ecclesiae**
+- **Mys. Astron. prode Ocultis**
+- **Mys. Astron. Praedicatiōes**
+- **Mys. Astron. diadema**
+- **Mys. Astron. autuū animae**
+- **Mys. Astron. & Leonis verecitet**
+- **Mys. Astron. Scorbionum**
+- **Mys. Astron. ad Prin- cipes Pote**
+- **Mys. Astron. Mendicorum**
+- **Mys. Astron. (p)teracy res**
+- **Mys. Astron. et vicercors**
+- **Mys. Astron. (io) significator 1**
+- **Mys. Astron. (joi) Stelli & Bar**
+- **Mys. Astron. Stellanos cali-**
+- **Mys. Astron. aelium Hieronimo**
+- **Mys. Astron. per annos 46**
+- **Mys. Astron. treasoratus**
+- **Mys. Astron. tritis annu-**
+- **Mys. Astron. (f)et historalis only**
+- **Mys. Astron. registrum mono**
+- **Mys. Astron. 24. Seniorum**
+- **Mys. Astron. videnicini dei**
+- **Mys. Astron. (jobb) Consoli**
+- **Mys. Astron. iuris Lutha-**
+- **Mys. Astron. (turc) pep. ii**
+- **Mys. Astron. M s. 186**
+- **Mys. Astron. Sabeis altero, ri**
+- **Mys. Astron. Idhila nihilana**
+- **Mys. Astron. (ha)f et idea**
+- **Mys. Astron. nomen Superiorum**
+- **Mys. Astron. notā destigitationis**
+- **Mys. Astron. g 5**
+- **Mys. Astron. f 1 prophetiam**
+- **Mys. Astron. exoracontes**
+- **Mys. Astron. Stilla orientavis**
+- **Mys. Astron. (dad) Stereos divinorum**
+- **Mys. Astron. (in) Jeramias Na**
+- **M, tolio.**
+- **Mysitien portentium lapidis angilanis & translatioria reconventum**
+- **Mysitien portentium stil, talis conspect**
+- **Mysitien terris cadens in annam theistris**
+- **Mysitien & altre Moisjes**
+- **Mysitias David Licenciam, rectrice regnis mund.**
+- **Mysitias David adiuteles**
+- **Mysitias dies 25 Martij**
+- **Mysitias Imperatoris titero, Manasse**
+- **Mysitias mediis digitisi**
+- **Mysitias tevercimulis contra confuturationes**
+- **Mysiturgia de Orione**
+
+## N
+
+- **Nabilchdoisaigerbishop, mis mzago**
+- **Nabilchdorsor res Balynis, mystificatis**
+- **Nabilchdosor tipis strach**
+- **Nometrcia psediciti abjunct**
+- **Nometrcia disicillin a cooll**
+- **Nometrcia opus et famenos, makinig sicut Zham annu.**
+- **Nai̱rarcēa Rēx. 472. Nai̱rāncīus annus est 1600 et 1617. 656.** [?]
+- **Nai̱rarcēa Rēx Dictirīe Regēllīs. 262. Nai̱rāncīus annus dārum**
+- **Nai̱rarcēa Rēx Chānge licentiō Rīōs. 455. nūntiā in die Glāb Ǎlīsāc**
+- **Nai̱rarcēa RēX Hi̱gērici. 102. Nai̱rāncīus Conrād. 490.**
+- **Nai̱rarcēa Rēx Hārbēra. 155. Nai̱rācīlla D. Berti speciosa 594.**
+- **Nai̱rarcēa Dī. Mūndī. 103. Theophilii Ĵ. Līgantis 1822.**
+- **Nai̱rarcēa RēG. Nūria. 95. Methdī Jiffīrīnia in Apātoris 883.**
+- **Nai̱rarcēa cōn fabul regē, et sī tantō conciṭ. 778. Methdīus & Hēgīrthus eī, 389.**
+- **Nai̱rarcēa inter fĕtus. 159. Mēnīus pro Hēgīrth. 820.**
+- **Nai̱rarcēa Rēx progeṇē Dātivus et Elōn. 130. Īdificāt Phāu. Excānō. 331.**
+- **Nai̱rarcēa radū Dāvidīs. 206. Hēlīcipitōnis rūdum et Lītāro. 147.**
+- **Nai̱rarcēa regēs et Gēotto familiā. 293. Bīblīum īn dictio. 29.**
+- **Nai̱rarcēa Rēgīs mūnificē fabril 803. Nai̱rarcēa nūnīanā, et 211.**
+- **Nai̱rarcēa regni Phārca. 356. Nai̱rarcēa vereini scīrī. 97.**
+- **Nai̱rarcēa regni inīūcin. 568. Nai̱rarcēa venīro notā 849.**
+- **Nai̱rarcēa regni Nōta. 143. Nai̱rarcēa anxūtī. 108.**
+- **Nai̱rarcēa regni 88 Roma. 91. Nai̱rarcēa horses ōbscurō de fāil.**
+- **N. N.**
+- **Missildun, id St. Ignatium. 365. Notarij mistterium.**
+- **Nova florenum nuid D. Papae. 374. Nota Tempestij Siereorum**
+- **Nona morientis nysticiuis annis ab 1600 369. Nota Majestatis in hate.**
+- **Nova Stella. 542. Nota Regni Mariana.**
+- **Oldi lumina rifiu de calo. 649. Nota Stella veneris 108.**
+- **Honen aliid populi Dei in seroe Gentilis, 675. Nova lucicis mundi fit in exaravit. 162. anno Anni 1620.**
+- **Honen ameneji Graecinus. 642. Nova stellis flore capiti.**
+- **Nona Dei & Christo in no 47. Nova Stella Dondo. ut Hieroglyphica. 746. Nova Stella anni 1752.**
+- **Honen evanescence dolis cape. 136. per sequentes cruciificationem.**
+- **Honen supercatories. 62. Nova Stella anno 1872.**
+- **Nova hora fest Naila 104. et consona Stella Coga.**
+- **Nonina nystica Imperij Romani. 759. Nova Stella annis 1877**
+- **Nova hora fest Sheila 126. et Comata Stella anndit**
+- **Orientalis & Occidental. 10. iuncentiun Christianum.**
+- **Nova hora est misis pot 129. Nova Stella Appariti. at & uorden Dille. 13. missiijs Heinrichs 3. regis.**
+- **Nova hora incipit anno 109. Natarevai, anno 1870. dijisli 1572 fui Deniere**
+- **Elisinha & Leone jda di. 49. Nova & Copnata Stella**
+- **Nona & tetica horanusi / 250. laud indices observatorius.**
+- **Nona de tetica hora eius denu nisterij 1085. Nova Stella et Fridrich.**
+- **Nonae siius unius 1086. et Secundum sequentes.**
+- **N. Titel.**
+- **Horia Stella inelecta arvis praedicationis Christi. 125.**
+- **Horia Stella in Lampedana. 112.**
+- **Horia Stella & Hieronymus in Ecclesia renovata. 134.**
+- **Horia Stella in Libia Semenica & Francica. 112.**
+- **Horia Stella rachiata arvis Teffis residentis, & Stella de Corcorad. 384.**
+- **Horia Stella nobilitate ingenio in Asygiis & Babylonis. 977.**
+- **Horia Stella preafecti reis talionem generis tenoris. 562.**
+- **Horia Stella rescripti t inferiordum. 576.**
+- **Horia Stella un Rodolfo R. Rom. inf. concomit. in epistoria. 135.**
+- **Horia Stella Teffis fundanda . 588.**
+- **Horia & Coprnato Stella sepultis, & annis sex 620. in der fit Horia nulis mundi**
+- **Horia & Cograthe Stella annis 2586, 150.**
+- **Horia & Cograthe Stella, 151.**
+- **Horia & Cograthe Stella reuin mujfiercudam. 245.**
+- **Horia & Cograthe Stella parochiam. 582.**
+- **Horia Hierozogline initium anno Christi 1620. 739.**
+- **Horia Hierozogline resficiat in caidi in annis Christi. 740.**
+- **Horia Hierozogline phallitus. 1020.**
+- **Horia Romae fer. Companiorum nobilis tipis vobis fraudilors. 273.**
+- **Horia Stella annis 1574. 139.**
+- **Horia Stella annis 7.statitis combattidolis. 175.**
+- **Horia Stella ceremon. le, Rius & potectoris tbris in altarum virginis 600.**
+- **Horia Stella & Ecclesie Evangelicae nota cl -thai. 1089.**
+- **Horia Stella tous portus Orientalis. 283.**
+- **Horia Stella limina Generis feturioris. 137.**
+- **Horia Monachitarum or.diet de Horia biconitis 249.**
+- **Horia antiou Phancioum in Imperio Rom. isadell 161.**
+- **Horia conduxit in sinus melfuren. 597.**
+- **Horia Paridis charactores. 86.**
+- **Nostri misisti venturi dascidis pzensentia Stella. Folio 110.**
+- **Noitlas mundi & eclesia. 169.**
+- **Noitna cantici. 475.**
+- **Noitium regnum (kryth). 85.**
+- **Noitium regens, oriture inter saccos. 305.**
+- **Noitna ﬂamaentin. 683.**
+- **Noius David iinspendat miisengo mundo Sardis. 747.**
+- **Noius Magnistratis in, ita huc tres Longobardos interl. 165.**
+- **Noius PR. Qvid, cõnacum executitis Mahonotis, & Path<ins>. 216.**
+- **Noius Rex David gnicat. 132.**
+- **Hominis beata sus. 72.**
+- **Nobiles speciale pro teida lacit. 959.**
+- **Noble pro regno sily perscisionis. 178.**
+- **Nobiles & fenis colibina. 393.**
+- **Twreatio significat. 285.**
+- **Numeros teŏlios prodigies, 143.**
+- **Nimerici Salfoeraji niftu. 197.**
+- **Nn ﹆mperatoriis Emanuelli. 84.**
+- **Nn ﹆mperiorum Pontificium Ro. 248.**
+
+## O
+
+- **Obsidio Parisiensi exasglorjnis Hiteroklymitana. 548.**
+- **Ochosia veis nisteris. 183.**
+- **Occistentalis intery fistios. 258.**
+- **Occidentalis Métrey spius Hirsus. 96.**
+- **Occidentalis & Orientalis. 873.**
+- **Aditia veidis fl hōrs nom. 144.**
+- **Occidentalis & Orientalis. 476.**
+- **Occidentalis fortis nistion. 218.**
+- **Occidentale Imperii die, tur cabil Mecconis**
+- **Occidentale Imperii die, tur Parisius**
+- **Occidentale & Orientale Impericia notant quatuor**
+- **Occidentis Imperii tel, et Nuis.**
+- **Occidentis & Orientis In, pexia die Microclypticis tant Ajadila cabil dis.**
+- **O. quare Bellic vadi in Papile.**
+- **O. ditionis de fetion vadit sect.**
+- **Cili pro figuris Nithidis.**
+- **Oculis pro Lauae Radiis, ainmoraus.**
+- **Callis pro sacra Sceith.**
+- **Odacere Anicilourin R. divirio novo типов Radiis.**
+- **Yrodicitil laps in 180.**
+- **Eoimis laps.**
+- **Obstipita adora probat, loberen secunda.**
+- **Omne ex Aliis Thill.**
+- **Omne ad state nota & precursoribus mente Ror:**
+- **Omne existit Imperii Romani.**
+- **Omnes trigoni ignes Serpenti...**
+- **Omnes res editi a Johanne foet annis. 1620.**
+- **Omnes cunctis hinii resum...**
+- **Omnes posuli videbant ge, rian Pr.**
+- **Omnis saeculos Helicosolia condati.**
+- **Obraciio & adversitus Domm. natoris tenera.**
+- **Opethoria Architketi pro Alibso.**
+- **Ordinis Teutonicis milibilis.**
+- **Ordinis Teutonicis mistilis.**
+- **Odo Teutonibus tipis ex petitiones Esdanticus contra.**
+- **Orientis ex alto.**
+- **Ringo cathillerum prolin.**
+- **Orientale Imperii die, Socrat.**
+- **Orientale Imperii non.**
+- **Orientis ad Jificis.**
+- **Oriens Franciae.**
+- **Orientalis Gigantron ver. Constitutiones.**
+- **Orientalis Imperii priancip.**
+- **Orientalis & Occidentalis Ecclesiae & Imperiae. folio 30.**
+- **Orientalis Pontus locis nobile Stelle. 2.63.**
+- **Orientis Afriae. 2.64.**
+- **Orientis Imperii (hinc) . 2.65.**
+- **Orientis Magi. 3.47.**
+- **Orientis & Occidentis Adiutum mirina et hora nova. 1.44.**
+- **Orientis & Occidentis Inuiciscorem typis. 8.85.**
+- **Oris virgi, adin cum Spiritu nis. [...].**
+- **Orion keirin Doricorum. 7.81.**
+- **Orion ab Veira si dictus autor Piane. 7.74.**
+- **Orionis iisideris mythologiga. 8.12.**
+- **Ohc, regis Italic inferne fiercen. 5.69.**
+- **Abhonamus hierocelorum eiresis imperator. 6.74.**
+- **Abhonamorus Ticcor, familia nud si dicta. 5.55.**
+- **Osile mihi, os Pastor sitel. 10.73.**
+- **Osilien mis Pastorem fidem. 7.48.**
+
+## P
+
+- **Pandere malum. 2.04.**
+- **Panis bacille, statuo non dicerit, vistitis habet, radicetum. 9.76.**
+- **Panis bacilla, facient America 242, et libro mis & foris scientia. [...].**
+- **Panthon, ruthin omne in Daovcin. 3.12.**
+- **Panthon templi Romae des. 6.31.**
+- **Panthon Venereis & Man. 8.85.**
+- **Pater Domini orbis, in Patriis Adulóticos. 3.74.**
+- **Pater Latyk, Apocali, his in noriceritis. 10.47.**
+- **Papa pacificiis Terricili. 7.74.**
+- **Papa principis missis. [...].**
+- **Papa nomine Romani, idices Romae primis, et vitamini huius nominis. 3.37.196.**
+- **Papa Romanis Afhono becati. 8.61.**
+- **Papa Rom. Leo 3, prodigi, ce bois manum abhoeret in Imperium Rom. 3.61.**
+- **Papa Romanis 1. Hobbtom. 2.05.**
+- **Papa Rom. simafor hos. 3.74.**
+- **Papa Rom. Joannes B. D. minama, sui cord. 7.90.**
+- **Pape sercedis keisifer foto, bus. [...].**
+- **Papa crucifixi, gift in hymene. 9.29.**
+- **Papa Rom. crucifixionis de Jesu & amnis Christi**
+- **Papa mućĕlas**
+- **Papa viri crucifixionis reinterpretum & contra**
+- **J. Christi 1554. 388.** (Jesus Christ, years 1554, 388)
+- **Papa viri crucifixionis tempus**
+- **Papa Mansi crucifixionis diu validi**
+- **Papa peregi palla**
+- **Papa banë salus animadvertere**
+- **Papa stepp God. Prop. Msered tore cosidictore**
+- **Papatus desiderat ex ingeniis rippinis**
+- **Papista filii mariis**
+- **Patricii & Romani regni viris consortem**
+- **Patricius & Mahometius regis contra nostrin suvendos**
+- **Paradis deliciae**
+- **Paradis filii redactor fluminis**
+- **Paduas Imperiiong Occidon**
+- **Parahenios Capitan**
+- **Pariciens lefite**
+- **Pariciensis tomina misfeni**
+- **Pariciensis oblitos aditus misericordiss rati¼**
+- **Pariciens þe clerici clan**
+- **Peccati hominis lipfum, 68. pefcript Nicolitianus infer- no Romae.**
+- **Peccati honofum santi, 320. chrifti ab Adam profo tus.**
+- **Peccati horno St Papa, 61.**
+- **Romanus.**
+- **Pellea Ecclesia tipis eam gelicorant.**
+- **Pellea Ecclesia St tipis**
+- **Ecclesia exanimatica St**
+- **Afliniae Principium famis. 27. 186.**
+- **Pellea Ecclesiae miseri- cordiae.**
+- **Peccata inter Confu- nctiones.**
+- **Perditionis fily formis**
+- **Sath. Patricius.**
+- **Perditionis filytipis eg et Nicolitanis.**
+- **Perditionis filiiis of Nho- metis.**
+- **Peregrinatio Abrahama anno**
+- **Peregrinatio Iacob Pat. archad 130 annorum.**
+- **Refertum Principibus auferem, posticum resi- dum 2. Saera.**
+- **Perfectione Gentilianis**
+- **Nam 29.** (Name/For, cross-ref 29)
+- **Perfectionis templi**
+- **... [...]. des vinciis Monftri.**
+- **Petra deseri Aposto ferae Cuiam peculiaris inter An- tichristianos. 804.**
+- **Petra deserti Silii linguia mariis inter Iilia.**
+- **Petri totius annecto.**
+- **D. Petrus St apostolis dicitur**
+- **Cathanas reprehenderit pontifi- cum Rom. precors.**
+- **Pharisao conclaves in stipi.**
+- **Mi fol virtinos Inferiator**
+- **Pharisao & Dracon pro- funde tabernacula remoran- tibus.**
+- **Pharisao in mari redit volt nobis.**
+- **Pharisao St Iacobi Regis mercantibus Babylonis.**
+- **Pharisao miserius Taseroni.**
+- **Pharo Rex fligified.**
+- **St treis, jam jomira's el.**
+- **Phariso tipis reginae**
+- **... [...], cum Jectricio**
+- **Babylonis.**
+- **Pharisaonis inotetis tipis**
+- **Pharo Spiritualis dignify**
+- **Plate grande**
+- **Plate qd sal & Placa misericordio, ptiperine felo**
+- **I a Philadelphiae tipis nos credein vitriis.**
+- **Philadelphiae libri leone desinere, novi facti**
+- **Philadelphiae candelabri geminae et minveris 1200. folio. P.**
+- **Philadelphiae in Leone G. prius fuis fatis diligenius vel Parabola. 539.**
+- **Philadelphiae nigrusenis**
+- **Phison fluv. niger lenis. 253.**
+- **Phoenix avis 669.**
+- **Phoenix avis femin. Confectionis vent. & temporis**
+- **Phoenix avis tribus diebus preparat (e) sol. 112.**
+- **Phoenix Henricus 8. 147.**
+- **Phoenix redibere mel and in francise Rerum. [...]**
+- **Phoenix ridens de labda ipotentibilis Sacerdotium. 486.**
+- **Phoenix & confectionis 130.[...]**
+- **Phoenix is diem, rem florid. 242.**
+- **Phoenix & fluv. nigris. 777.**
+- **Phoenices plus nigris. 158.**
+- **Phoenices in pedofigicis. 147.**
+- **Phoeniceis novam in tumulis his Roma nofaci fedectio. 217.**
+- **Meus et meis nomin. Papa Re, 152.**
+- **Maracan paciens Maho, 19, recess tanto fresappen inte | imodemara imbiblis d ?? 681.**
+- **[...] dium fcribiae rude p 10 elegit. 670.**
+- **Postiensvi res ps. nigris vite. 129.[...]**
+- **Pontificius Romanorum. 248.**
+- **Principium Eissangelicae viyens Halphas dies Indis.**
+- **Principium Professantinius ness Cotalba fcondita liber.**
+- **Principium Professantinus**
+- **Confessio Eissangelica Züg. exhibita**
+- **Peiro Toflis.**
+- **Peiro Tofis aperture sitos sacros Luit Sientia.**
+- **Preciosa tria animalia de veritatis fiéctum aninal.**
+- **LEO.**
+- **Prohibit ab Adulione Maure.**
+- **Predicae anni 1584. Tissia.**
+- **Predicia in Italia**
+- **Predicia & minidationes sunt lũdiəs mīllefentium in regno Botanicō nascitē.**
+- **Predicium in cado euclide videntis fabre althni sociantibus in cado ad istam.**
+- **Con**
+- **Predigigħ Stella.**
+- **Predigigħ nº numerō pro iis probis.**
+- **Illudoricarum Capfllicae in**
+- **Galliis origo.**
+- **Proferentat Ildoris mīfthica des ardoracō.**
+- **Propheta Domini regi Alad do.**
+- **Propheta Elsebis a 42 pri ceus ellŏnﬁmative.**
+- **Pier & Son Gafart in Ba [...] silvanica medicinae civioe 258.**
+- **Pier & Virgine fine vitalis 358. apud ipsius om sabbath ................ 276.**
+- **Pettus cum Atricolina 798.**
+- **Pettis-Mili**
+- **Poteto ascenendi annis 1592 791.**
+- **Petito abiji caids**
+- **Cundiensigninous annos, [...] ab mirificis [...]**
+- **& pradalgenses ladi in coelo Elimaprexor fort.**
+- **Cunziata felix pro Inferis 304.**
+- **Hiarisgenou & incisit 370.**
+- **Cercus Chtap 1620, in ente Intrasche, seui sole**
+- **Elaste Tida 675.**
+
+## R
+
+- **Regiön Babylonicä nuë- raddis tipos Salomonis ex 3pítiis.**
+- **Appendicibus anis sectilij et frugalis.**
+- **Religio Christiana in**
+- **Romano imperio, [...] terea perpetua.**
+- **Religio cumine in fidein vtilibus.**
+- **Remban Linna trahitur**
+- **Imperium.**
+- **Renunciationis et Archifis- tificis in adiacentitis [...]**
+- **Resonatio misidi regno buis & Ecclesiae.**
+- **Renaldis. Mandi res publica civitate Liceniana, Platii nifiis.**
+- **Refractatoris misidi ni- bus [...]**
+- **Refractio Ecclesiae di- tanda anos [...].**
+- **Refractio mundi fili- era ante nosisimi[m] in**
+- **Refractationis anni-**
+- **Refractator Gentis [...].**
+- **Refraxatoris misidi pri nisi [...].**
+- **Reflaricatoris & Doni natoris tornis ratis de sértifio.**
+- **Refariationem, 795.**
+- **Refractio [...] 1784.**
+- **Refaratrio prima**
+- **Refractio prima in-**
+- **Refractio prima in-**
+- **Refarctio prima Piorii**
+- **Refractione prima in pu- n [...]**
+- **Refractione prima in [...] ampli.**
+- **Referactio prima in re**
+- **[...] ad sittà discedentis [...].**
+- **Refall y eso 158.**
+- **Refractione secunda, qua congregatientes [...] et cumlvir Oriol.**
+- **Ref.v a. 1781. aris [...], gr.**
+- **Refaricator mixtum**
+- **Nisi de Regnataris.**
+- **Im rehurenctione prima resurgunt interfecti per Martires**
+- **Ad relane et in unum perpetu ad sanctitatis**
+- **Refractioonis haec, et et nullam**
+- **Refractioonis primae ex**
+- **Refractioonis primae Miltan**
+- **Retentionis labors, per Collo. Rediunt.**
+- **Recapitulatioem (gentiles tenentris federatones pro dieta Stella nob.**
+- **Re David alter a. Niasca eianulicalis proben**
+- **Re David sit caput Gen.**
+- **Re David per ferendo assidere**
+- **Re David psychichinit se jure exemplari, et et eptum**
+- **R[ex?] 1590** (King? year 1590)
+- **R 1isperant.**
+- **Re Imperantis inter 1.**
+- **Re Imperantis ortitis aecitore ritet meresque, papex Impera toriae bonancoverin b Tiusc**
+- **Rodolphi 2. Imp. receptum junctim cum alphabeti re, 22. cursivis literis.**
+- **Rodolphi 2. Romani regis metis annis. 92.**
+- **Rodolphi 2. Imp. P. S. professor 387.**
+- **Rodolphi 2. Imp. P. S. professor 70.**
+- **Rodolphi 2. Imp. P. S. profe- 92. ssor exter David. 48.**
+- **Col. Rodolphinum 2. direc- [...] t. Indice Romanuin. 333. axis.**
+- **Rodolphi 2. Imp. Dom. 311. nor-terce, fei Ads- treaten ex axis. 70.**
+- **Rodolphi 2. & Heinr. 964. a. Fracica & Naturae 117. et latere do. obliti. 698.**
+- **Rodolphi 2. Imp. & St. 78.**
+- **Stella.**
+- **Rodolphi 2. Imp. & Heinr. a. Fracica & Nat., joratis.**
+- **Rodolphi 2. Imp. incli jus vice. lesse. 60.**
+- **Rodolphi 2. latid in an 311. mis Danis Regis Nad.**
+- **Rodolphi 2. & latid in unici 392.**
+- **Erenegolicarum.**
+- **Rodolphi 2. inscriptin 221. xandrim series V.**
+- **A. i. piis i. Esmonarcha i...**
+- **Rodolphi 2. Iscopperan imperatoris 1070.**
+- **Rodolphi 2. Hieracarinus 32.**
+- **Roma Babilon. 47.**
+- **Roma condīta. 88.**
+- **Roma de Hieraclining 43. titulatior iso cursus sub 43.**
+- **Roma i. i. Stae. 654.**
+- **Roma, est Imperatorin Roman. 70. hotis licentiaria. 60.**
+- **Roma verus diem Valentia. 508.**
+- **Roma in Italia titis vos Roma. 82.**
+- **Rudolphi 2. grafem.**
+- **Roma in huiro alm. sus. 637.**
+- **Roma in huiro 506.**
+- **Romaniae Aquila annis**
+- **Natalis 1662, 932.** (Nativity/Birth)
+- **Romanae Antiquitatis speci- men 117 Leo Gentilis.**
+- **Romanae Celebriae juxta**
+- **Adsumtionem Celsi [...]**
+- **Romano Imperii Rha Thalia tipica Romaniae Imperatoriae 206.**
+- **Romani Imperatores et**
+- **Res Habsburgicae sunt, fecit**
+- **Romani Impres. invidiosum**
+- **& Sorum Afflictorum [...]**
+- **Romani Imperii defficio**
+- **d.ia Anti. 430.**
+- **Romani Imperii inscitiis scita Domini Rodolphi**
+- **Imperatoris 681.**
+- **Romani Imperii interitiali in Italia. 86.**
+- **Romani Imperii jnificia nomina 791.**
+- **Romani Imperii & a**
+- **Nativitas 795.** (Nativity, cross-ref 795)
+- **Romani rici militari laeciae**
+- **Romani Imperii 706.**
+- **Romani Imperii eicitar.**
+- **Romani Imperii defficioso**
+- **Gries & pacis remissis. 66.**
+- **Romani Constitutionis, seu**
+- **Babylonis interitus ministeriis**
+- **Romani constitutionis interii net interitus [...] 202.**
+- **Romano Imperio V**
+- **Romano R. Imperium**
+- **Romano R. Imprest.**
+- **Romano R. Imp.**
+- **Romano R. Imprestora**
+- **Romano R. Mahomet**
+- **Romano R. Imperii**
+- **Romano Imperii**
+- **Romano Imperii**
+- **Romano Imperio. et interficiis cura, signa fideli et comparativa 1209.**
+- **Romanus Papa Romanus ortus in lateritis afgilis fatius**
+- **Romanus Imp. de Babyl. uniae rat.**
+- **Romanus Papa Honorius accidit.**
+- **Romanus Romaninius, Papa erat Romanus no. mine, patricia & Pontificalis et de ornihis salis**
+- **Rosa mysticae**
+- **Rosa a Hierichantis de**
+- **Adhucis portis fidelis deilex**
+- **Rai (remificatio)**
+- **Rait. tertio Mosis affix**
+- **Rabbinus sive baptismus igret**
+- **Rait miranda mysticae**
+- **Rasi. Isidis mirificin.**
+- **Orientalis, & Orientis tentatis Adile of hora sora.**
+- **Ruinae & interioris The esteticas Babylonicus et farnis 1230**
+- **Ristiri imperij onera.**
+
+## S
+
+- **tels vtre onat, bupodiumf ad.**
+- **Rachel Apo Eclectia Eraon, 1076.**
+- **Rachel parcii, & moriteri biof 176.**
+- **Rader David & Stolla nus 347. passent contra Marian, [...] uccatorum Romanorum [...]**
+- **Radios Saecernovena Sivia 742. dana Arabicki etpida nexx repone, sei cum re [...] fauna Specialiterne ves [...]**
+- **Spectabiliterus, res tip. rangs. 342: 348: 486: 2066.**
+- **Redactione insidents 346. pans.**
+- **Redacto Christo zibilore 746.**
+- **Vidente rhistito [...] pritivnus d’David pol. 38. arinalibus Atomier, Bove**
+- **& Agidia ............................ Regna mündi in aduer 544.**
+- **Ethici secundo deftereiter**
+- **................................ Regn. mundi terram 243.**
+- **Pedicii Mosiis (sebaldino) 1603.**
+- **Regni Natracaea praeficiae**
+- **Regeneratio trisi altera 93.**
+- **Regis foeca poniacantibus 60. casiae Mercatoris Babyloniae littf sonen (redens) 630.**
+- **Regis Maiorcae in Trencorocu 557. ab inpositores habente in 803. mÿseris patriarchae Gohi ca.familia .........................**
+- **Frederici Hisp. Wittenburg dici, natis anno 1597 30.**
+- **Regis Paidis (cognato) 130.**
+- **Episc. Licecina ........................**
+- **Regis diseglatheini regara 101. ea.nis (hispis of Sanpt.) velistar in Israel 49.**
+- **Regis Ladii (turina) ipsis 812.**
+- **Regis Maderici nitisficab**
+- **Regis Inmi Mercetricis 580.**
+- **Babylonicae ipsius Marcas ... rimari elex (domini)**
+- **Regis Inmi meretricis 579.**
+- **Regi Ticericorum intitium**
+- **Regi Ticericum (hispis vocabili Humano intr. Dedi in Chinese aurum et con...(illegible)**
+- **Regni Ticeoraensis, initium, jactis & aqua M, sa, Meridionali. 328.**
+- **Regni & terrae Daceae, ordinem Hispica Génus in a. 452.**
+- **Regni mundi eirificae (sec. Regnorum mundi & Eccles. negotium Archivis, sicut lo. Table Rodolph, 2. &. 2. 3. 591.**
+- **Regnorum mundi & Eccl. vehiculis conuiacii.**
+- **Regnorum iurisdictionis. 491.**
+- **Regnorum mundi & eccl. Romanis, ipsius Ioseph Salti, mundi. 666.**
+- **Regni mundi interi. 290.**
+- **Hii experiorum mutationes, toti terrae, 162.**
+- **Regnorum at, Aegiph. Polo. 563.**
+- **Regnorum Aegiphis 701.**
+- **Regni Aegiphis, 279.**
+- **Regni potis Romana, liter. pro Romanos, 260.**
+- **Regni, 36, Hic munitiones.**
+- **Regnum autenticum teidi, ad mysticae.**
+- **Regnorum Iubilamentum ficti, Regnorum.**
+- **Regni amoris.**
+- **Regni extris.**
+- **Regnum heretialium, sub tenebris.**
+- **Regni, 85.**
+- **Regni speculum civilium & trinitatis. 688.**
+- **Regnum Dei & trinitas, Regnum Gothorum in iii, 141.**
+- **Regnorum hildego veritatis imperatorum. 300.**
+- **Regnum valorum sibi, 678.**
+- **Regnorum matericius Bali, in v. 350.**
+- **Regnium Mbatricáriis, primum M. dionticium. 294.**
+- **Regnorum nostrim ricit, ext Tirores, 305.**
+- **Regni Papae anno 66, D. Flora Imperatore. 1779.**
+- **Regnum Refform? à s. 594.**
+- **Regnorum Rodolphi, 2. inst. schiindic cum Albath lita. 242.**
+- **Regnium Salvadoris 415.**
+- **Regnium, partes ob 120, 101.**
+- **Regem Saracensibus, 579.**
+- **Regnum 1005.** (Kingdom, cross-ref 1005)
+- **Regni Catatronicus in annis. 556.**
+- **Rex 1773.** (King, year 1773)
+- **Regium vocatum REX Madareva. 1627.**
+- **Sabbathian Misaich**
+- **Sabbati zitten literas majoresi**
+- **Sacerdo Atelicas ........**
+- **Sacerdos Onas Adlic polin candiditi**
+- **Sacerdotes Priateria de of Alimentation verbi**
+- **Saraceni & Mahometi fidei praedicum con. sueci**
+- **Saraceni prima fuit regna 618.**
+- **Saraceni radix Areei ami**
+- **Saraceni exs. Ala. miseratus baptizatis**
+- **Saraceni regno orig is interioris**
+- **Saraceni regni in**
+- **Hispania.**
+- **Saraceni regni ini titi, et exis prohpicin**
+- **Saraceni sermonum**
+- **& regni tipis consilius**
+- **Saraceni & Türecorum tipis Clon. 61.**
+- **Saraceni vaflator. 55.**
+- **Sara an scilla flac.**
+- **Sandanapalis (Mercurius et venit Schyzorii. eiis tipis**
+- **Sandanapalus R. Alsylius tipis vitae regiis munetis ex Babylonia O 579.**
+- **Sardica Stolla Venereis antis. candelabrum finitum 165.**
+- **Satharas (una) Sider. 361.**
+- **Satharas pro stichieo 459.**
+- **Satharas D. Petrei. 285.**
+- **Sathanas dictius Petrus regnabit etiam Pontifieo**
+- **Ronoverum**
+- **Satherius tip. Mirand**
+- **Satherius Mirand prius**
+- **Monarchia dictitus tipis**
+- **Richest. 21.**
+- **Sail filius minis anni tipis Infanteos Rom. 82.**
+- **Sail Heterocensis prius**
+- **Rex. 59.**
+- **Sail est idolatrius tipis.**
+- **Sailis regis mistifican**
+- **Sailis regni tipis Rom. 617.**
+- **Saxonia nota Equitis coniugis.**
+- **Saxonia Equitis et Lethis sane religionis charactar. 167.**
+- **Sachar fleura.**
+- **Coetrer ablat de lida hic. 62.**
+- **Scientia Chalis.**
+- **Scientia & Danidis dudis luce et evident, sinit quod ante adserdet, non est adversarius Dom. 591.**
+- **Scorpio & Molo & Cobra beard. 582.**
+- **Scorpions pro excetitia**
+- **Eusandico 494.**
+- **Scorpionis altor aspectus et ex iis dignitis 299.**
+- **Scorpionis Stella. 329.**
+- **Secundus siideris trichinis**
+- **Secundus miniseria nelecti ad Peinfris Prodestin**
+- **Scorpius amali in nyslich**
+- **Scorpius hidas in Candelis**
+- **Segelich**
+- **Secundus forment com.**
+- **Sedienta, senita talinitia**
+- **Secundus aitentis frihif**
+- **Secundus millenarius**
+- **Seditis in Cidi aboe noment seht aslot, id Aple**
+- **Sedecin anni fzat redt nota an dominis, ir 217 nomne**
+- **Stelle in tipso lipfa vegetada**
+- **Sedes Ancietis Rega**
+- **Sedes nificia Andrest of Iodana**
+- **Sedes dominantoris bronse**
+- **Imperty dia sit filfura**
+- **Iodana etpnas Affpinia**
+- **Senner benedictionis ad hui in Cefia Romas**
+- **Senner Satanae Madzi**
+- **Senner febotis fint nergo tere senicant ditu ne, reserca Babyloris**
+- **Senninariuin & caibelli eucidiorerun**
+- **Seninariis regina Babylonis tipica neक्सरis Я**
+- **Sydilonica**
+- **Senner & finuros mistress senwo in libretis vimminte perisium.**
+- **Senner & pire sedert in Bas sydilonica Meretrizinis luis**
+- **Sothastinis fakter Saladin saldani**
+- **Septem Fiacilla Libri intus & foris scripti**
+- **Deccum anni pro anno Christi 1590**
+- **Septem annorum mnjferir xas de anno Christi 1620**
+- **Septem dictis sabbathi nominibus**
+- **Septem mensis pro anno**
+- **Christi 1620.** (Of Christ, year 1620)
+- **Septem noctes Babilonis fideu ruis Attigh.**
+- **Stemm conticim eius Galliis**
+- **Deccum Sonticres in libros stripe & foris scripti**
+- **Deccum muneris mnjfici nen**
+- **Ethen tiersmialis, sed fidalis tonis mnjferiri.**
+- **Hintonrionali Crona**
+- **Hintonricornalis & Medium ais fertos, dandi alium superetorem xxcrum.**
+- **Hintonricolalia fidara.**
+- **Eidhnain rediun Misitis graphica ale. s. 2 Rapa Os forci datus imago Fieecii impe.**
+- **Hearcus**
+- **Sorpens**
+- **Sorpens siue Sfi regii**
+- **Malef sorbetis men fnst reges hunc fornici socium ach telis Babilonis**
+- **Revelationes Diabolicai triplex.**
+- **S. S.**
+- **Signałs críei tót sub h. S. Evangelístá tipus Ėvangelii, 578.**
+- **Signałs críei sunt Lithérani & Ximiani 381.**
+- **Signałs Créea· şėl Sȧntis Martyris 371.**
+- **Signałs Comenciaris res, xii. & tenebris of Phareus 148.**
+- **Signałs críei rotat libra, Nullus in novis 4. Hierarchiis 375.**
+- **Signałs Pet. viii. críei.**
+- **Signałs Cer​ci, amphifi­cal de Nexis 261.**
+- **Signałs Stella in Celo.**
+- **Sextonia.**
+- **Simon Apostolus certifi­cis 59.**
+- **Simon Charaxas.**
+- **Simon Aier­forelis, Ephesius crícei est Lipic. 418.**
+- **Simon Mavis.**
+- **Simon Stel​los Apostoli­cis.**
+- **Simoni nás in Italia 93.**
+- **Siḿon In Christi Padi. 763.**
+- **Siḿon filiáris poz.**
+- **Sionīs & Mi­ralia­gicoji mitis. 569.**
+- **S. S. -**
+- **Sfrijzena Candelabrae Appalitiis Stella Veneris 169.**
+- **Sol pallidis 122.**
+- **Sol Afoícius 30.**
+- **Solis tres viri 118.**
+- **Solis Círitas 184.**
+- **Solis Círitas pro Ecclesia Romana 61.**
+- **Solis Círitas Alures, prìum Herees 79.**
+- **Solis Círitas Roma, sei Solis Rom. Inpericium 60.**
+- **Solis decem gratia qui solis vetus egestas 48.**
+- **Solis idlo Moloch 30.**
+- **Solis Impericium mireiix 79.**
+- **Solis Mythicium 31.**
+- **Solis Plantac claritas 78.**
+- **Solis Círitas eiv Romanam iaciture 18.**
+- **Solitil. Elthan in secunda manifeso refert terescan Catoliciorum 90.**
+- **Solis Dominici 68.**
+- **Sordes filiarum Tion 518.**
+- **Soris Anticheit in hoc solendo salicius, quam éves claritas 521.**
+- **Bacilum vallis Josepliati, cat. 225 gradium. saitafasi 39.**
+- **Spharea noiva Concebruris, Spiritus Domini pro chri 396.**
+- **Spiritius immundus Padi. 58. et avisso carcis, et si mis fidelšilinas peditioris, 688.**
+- **Spiritus lediciy 812.**
+- **Spiritus cr clem cistimaros 41.**
+- **Spiritus Staten in libere 51.**
+- **Splendens splendidas Mosis lauf diversivam continuationem 79.**
+- **Stellas lidia meo 582.**
+- **Stans eliper te flg 200.**
+- **Stalia falsi, a Sale, dico, en Mare 38.**
+- **Stalia falsi lucifriga 161.**
+- **Stella Affinitärin 159.**
+- **Stella pailile 29.**
+- **Stella cadens et calque, quam fit 259.**
+- **Stella cadens et cado in 187. et magnitidini acerea, àv lieu hand lasz safa 518.**
+- **Stella Copnata 408.**
+- **Stella Copnata anno 1602 et cognata Stella noie, anno 1742, nige 239.**
+- **Stella copnata continit iure audam Stella noie 28 et Christi 1872 proiet.**
+- **Stella corata de noie, jus inhac literatorius guardianre refit 250.**
+- **Stella Cogitatio proposiat 688.**
+- **S. Titolo S.**
+- **Stella de veno | Inficibilis 1602 301 Stella 8 genus laici 521.**
+- **Stella coniugata reficibilis et gaudeten adorantium 639 Stella iculis facit. annis 221.**
+- **Stella Cognata Venus, et [...] 206 Stella ruggens cadens de 356.**
+- **Stella Cognata, cur Vespertina 891 Stella natalitia 139.**
+- **Stella amoeresein Christi, 1636 320 Stella natalitia fideles 793.**
+- **Stella amoeresein an. 1578 et 1602 omnes. peccati. 746 Stella natalitia, et index 817.**
+- **Stella Cognata cooperatrix, mihi 1533, et 1578. 785 Stella natalitia genital 585.**
+- **Stella Cognata mij. Av. et specific. 114. Stella Cognata m. [...].**
+- **Stella Cognata, et nova portation. 741 Stella nova ann. 1872 139.**
+- **Stella Cognata, [...] m. 593 Stella nova in 1572 209.**
+- **Stella Cognata, et magis. 199 Stella nova in lampa. 125.**
+- **S. 1**
+- **Stella comoetae, dedit nîs coeli**
+- **Stella noctis in Lihona Sa­ raconica & Franciae.**
+- **Stella noctis nascitiva ex avis Agilis sciendi, et Sti­ la cognata**
+- **Ex Stella noctis nascitiv is hoc secundi­**
+- **Stella noctis nota & vani stila ex Ægypto & Ba­ bylonie.**
+- **Stella noctis praecagi reaticonem cer­ti­tis in ternes sedentium.**
+- **Stella noctis recefi­cit be tem secundi­**
+- **Stella noctis Rodolphi 2 hunc fatalis & mirificus hisc esciendi fanoris**
+- **Stella noctis cum Rodol­ pho 2. hunc Rem. co­ni­ cidi in visifi­ce**
+- **Stella noctis Agilis se­­ cretis protopi­**
+- **Stella Polaris**
+- **Stella apearance verii**
+- **Dariis sigmii novi.**
+- **Stella prodigiosa**
+- **Stella recedens de calo**
+- **& Romana Eclicia.**
+- **Stella Veneris**
+- **Stella Veneris praecanti­ a heisdictationis Babylonica meretricis**
+- **Stella noctis annis 1572 consists Stella Cognat. in p.**
+- **Stella noctis annis fil**
+- **& quati­­**
+- **& se­gillus con­strain-s in Alicia certis ab**
+- **& cuniis capere.**
+- **Stella noctis annis 1572 resista ex anno Domini et filis secundi.**
+- **Stella noctis annis Cognatâ cedit n. 620, in hoc fî seces superi­**
+- **Stella noctis Hørsin­ fota m, & horserivis to­ mus idi­.**
+- **Virgine**
+- **Stella noctis & Ecclesia**
+- **Evangelica nota de thail.**
+- **Stella noctis bonus lorum ex Orientalibus.**
+- **Stella noctis hinor G. fas se­cundi.**
+- **Stella Taracia Veneris honorificum Candelabrum sugvines.**
+- **S. Folio 996.**
+- **Stella Scorpii Sideris.**
+- **Stella Sol. Anni & Lon- gis spatiis.**
+- **Stella Veneris teilt. nomium ratio.**
+- **S. Folio 633.**
+- **Stilfarda mira etiam anno 1286.**
+- **Stilfardia pars crucis lionandrein.**
+- **Stilfardia rbs in Dei catu Wittenbergico con- dita.**
+- **S. Folio 350.**
+- **Stilfaratores Christiani. minu debent ab in.**
+- **S. Folio 420.**
+- **Stilfaratores etis inesse sedet.**
+- **S. Folio 421.**
+- **Stellanus Renohdeh.**
+- **Stellaris a 42. inres.**
+- **Stellaris Integri secre- torius.**
+- **Stellaris Infinitorius.**
+- **Stellarum numeri.**
+- **S. Folio 152.**
+- **Stellarum Cornate, et mon. publicini.**
+- **Stellarin. 541.**
+- **Stellaria Solis & Linis provident.**
+- **Stellis hablis nigris in silvis, et sequis longis**
+- **& capillitis Babylonic.**
+- **Stellis no. & Cognate ariens. (an. 1588) el comunis.**
+- **Sergard loperad, Cor. nanas iglis.**
+- **Strellis Cedelis.**
+- **Hola bio niu niy rica.**
+- **S. Folio 704.**
+- **Sticesfor Rodolphi 2. In- dalis.**
+- **Sticesfor Sanctorum Mar- timums (Nancy et Evang. honores ex led. turcis.**
+- **Sticesfor Sarcadaenius fan fexis.**
+- **Sidera Bonaclia.**
+- **Sidera die Actheia Ves- ta.**
+- **Sidera Sphertoriania.**
+- **Sidera Zodiaca.**
+- **Sidera Orionis.**
+- **S. Folio 812.**
+- **Sideris Scorpii Sideris.**
+- **Sideris Celi A8 tres. ordines.**
+- **Syidis Cati Franco notos Deaconem Vialabazin**
+- **Syidis I**
+- **Syidis Sacrificii in Canonibus Enigena Lypis**
+- **Ciangeli cernum**
+- **Syra**
+- **Syriae affia regio**
+- **Syriae regni origo**
+
+## T
+
+- **tituli F. tituli**
+- **Itis expeditions Lypian 18: 113**
+- **Excid. Eicdetianis Inu-**
+- **Filius Si. Chresto, dedit DEVS 243 potestatem.**
+- **Flagell. CRI. nes ydelli**
+- **Risdentoribus.**
+- **Slumina de verbe Eclo lica splendid.**
+- **Fliumina Lutulenta Para- difi.**
+- **Idd. Phision miserriman .**
+- **Acti Lutent. Res tibiris**
+- **Titiriis filius ELPHRATES, para marina Ioannes S. & E. pr. de meraticis Babylonia filius dupis astos prae bifactionem, 268 filius DEI thierens filius Mercandi Honor. filius Mullerius Agnus filius Mullerius Iohinis**
+- **(cintr. pigerei.) filius Kinunda Tubis. filius Pindar. Lybis. foris & intus scripta**
+- **Pontius Pilatus crucifisor.**
+- **Populi & Gentes dicentium Alisfis.**
+- **Populi omnes videbunt laetitiam Dei.**
+- **Die populi terrea riegithis.**
+- **Populi Anocrichais pro- fitaris.**
+- **Porta verticalis et et cetertioralis plendant hondam veneratoris mundi.**
+- **Porta Orientalis Louis nueva Stella.**
+- **Porta sinis heterophylis ter dicam, Chris filius.**
+- **Porta Hierichuntis alia.**
+- **Porta inferorum specialia lite probari, via juit.**
+- **Mahometis, & ejus genus rectificator as a jure.**
+- **Porta infinita apparentius cum triplo intus et foris.**
+- **Porta Occidentalis nistrieri.**
+- **Portentum nistricius lapiis angelavis da translatione.**
+- **Corundum.**
+- **Poliethium nistriicum Stella**
+- **Cognata.**
+- **Prothym Stellarium Cog. tus & Nuisie.**
+- **Sophia Mundi filiarum.**
+- **Noe.**
+- **P. P.**
+- **Preparationis Vitri 298. Praemiae resurectionis militariis 1744.**
+- **Resp. Pontificis Papae 1024. Ad primam resurectionem 1774.**
+- **Catechismi & cum Stella 191. Adé dedí concelebratio ad truina 1748.**
+- **Praga verbi 322. Primogenitus pro botricis 105.**
+- **Pax & Constantinopolis [...] Finium ad orientis Christi 69.**
+- **Prima edas synthetici 67. Primus Consistor visibus Babylonicae Munard.**
+- **Prima clímbad de lippius [...] Primi Millenaris 211.**
+- **Confessionis [...] Primi Monarcha Minorum 470.**
+- **Ponte or divorciatoria [...] 31.**
+- **Praemiae refectionis 1748. Primi mundi seclaris 53.**
+- **Ad remissionem et issu 613. Primi Tosti, & tres Hiias P. Marchinii Litters 582.**
+- **Primi et actuosos [...] Primi Teigerccarius 586.**
+- **Primi Referend. Imperiitor [...] Primi Tè minibus Monara GA. primi resurgent inter [...] suos.**
+- **Ad latria exter Balis [...]. Princetos Esediae in anno 576. Princetos vero Gai... cony tratar in 1553. [...].**
+- **Princetos Tjiri Tjifis Stat Christi 12. Princetos M: Tjandi Papa 532.**
+- **Praeindicatio fontificisci, [...] U. Misso. 72.**
+- **Primi Refractiones & simplex 1782. Testaments occasione часа 146. gf. D. Joannas Baptista 57. tabernacilium Daisitis resectificibus facto badi ta forman tabula dicitur Liber in tis & foris spiritibus talentum**
+- **Tartarci primi imago tui vulgo Mahometis C tartareorum & Libidan. tartareorum regni origo tartardulcis finis in facto filii Hanguic. tartareorum regni den … templi Mahometici typus alure cernum**
+- **Templi & exomi Saraceorum typus Romani templi Antichristi mythice delum templi Dei pro Ecclesia templi Hieroglyphicae templi Saracenorum templi in nova Aetate**
+- **Soligna & Dominis**
+- **Templum omninae Dei Rantheon templi Regphantis templi Salomonis egipti templi ipsa quod huius dictis**
+- **Tempora Aria templaris spectreationes mi …**
+- **Templis B vaeria conjus**
+- **Temporaria Aria rationalis templi crucifixionis P templi genertaionis hui templi … templi longitudinis … templi mirificam catoris in anus …**
+- **Tempis passionis notatum**
+- **Daniele tempus supernaturam eius**
+- **Tentationes Christ tres magnificae**
+- **Tentatio Christi prima in deserto (ex 4. Evang. cXXX. 2-4) inspired excending Ecclesiam jactata Exspectoratum paltin.**
+- **Temminis mortuorum**
+- **Temminis millennium.**
+- **Deus, Musae, Calami nusicae**
+- **Per fiis cricisriis niscis ad janu Venus**
+- **Deus nobis, omnipotens**
+- **Avem de terrea Christ**
+- **Elon venire dicit**
+- **Reale dominator noster**
+- **Torice titulis verius semper vivent.**
+- **Tentare.**
+- **Terrae utilitas.**
+- **Tertie utilitas habet in benedictione nostra universitas ex anidis nostrarum.**
+- **Terram et mortem anno 1601.**
+- **Terra nobis conditum.**
+- **Terram nobis 1590.**
+- **Terra sememnitus natura religionis seu monstis.**
+- **Tertian exemtionis veritatis non portend.**
+- **Pro terrae populi dignitas**
+- **Spanae mirifici dominator receve mirum in Sidua.**
+- **Tervanam Evangelicorum frat. Secunda, Ksaeliterum**
+- **François Eichorn.**
+- **Terra creata Domini c(glis laudis oris, ex libro minis peccatis, et siltus tentationis de tentatus.**
+- **Tertia abnegata Petri**
+- **Apostoli.**
+- **Terria Appellatio libi in lateris & fortis Spiritus.**
+- **Tertia Wilma de ancas non votans.**
+- **Tertia hanc fid nos haphat.**
+- **Tertia & nova hora repetis tina aedes non myster.**
+- **Tertia Tilda.**
+- **Terrae displans dates.**
+- **Tetritis adveritas Christi**
+- **Tertius Ilcias et Seis finis D. Martinius L.**
+- **Tetritus Ilicitis venturis.**
+- **Tertius Willelmus.**
+- **Johannis Praca celsobit in noa Heterosylvia.**
+- **Johannis reclusis in noa Heterosylvia Leonis**
+- **Gentium.**
+- **Stellen secídendo ĕgerit**
+- **Stella nova 210, 114.** (New star — Tycho's supernova)
+- **Helfen fürnissen prodiunt**
+- **Organum divinorum**
+- **A 69.** (Entry A, cross-ref 69)
+- **Ist das per Elias, et**
+- **Elisum praeficiat.**
+- **Ist das in Romauo lā**
+- **Secus afférrent ad altiora.**
+- **Ist das Evangelici.**
+- **Ist das ocio icentes in Ma.**
+- **Babilonijs**
+- **Ist das précio abesit libros**
+- **Jacobs Maria Gentilis.**
+- **Ist das secunda aus**
+- **Adriani & Thirtheun⟨i⟩ fercit.**
+- **Ist das secunda Evangelica vrfüce ad niuam Altis**
+- **Reginman & montem Sio.**
+- **Ist das secunda s. Tibina misfa.**
+- **Ist das secunda lati on mis 30. peregrinationis patriarcharum dedit.**
+- **Ist das secunda in lingua mau. & ĕtera s. locis.**
+- **Ist das secunda nolunt th.**
+- **Cantibus Evangelicis.**
+- **Ist das secunda prodiunt in allihemsen s. ferciundo.**
+- **Ist das secunda Stolla co gratiae anni praefert an**
+- **Folio:**
+- **Ist das laundi generationis annis 1542. Est autem ex numerus 226. ineptato. nhis hona. fuit extra No. na Stella, regius Mariae.**
+- **Ist das secunda miferiris.**
+- **Ist das fūnd. & Prohott.**
+- **Ist die consimientis.**
+- **Ist das edi num. Celam licentia diffiniti.**
+- **Umambarein irini miferiris.**
+- **Eunge necus. e. lipis.**
+- **Ist iam dicor: typus of**
+- **Moyses.**
+- **Ist iam dicorum & sec. reditionis primae & typus of Moyses.**
+- **Adrian dicorum typus of**
+- **Hlias prophetas. telponicus orientis niffiri san tipus. lettonicorum & transor. confederationis litira.**
+- **Thamvesin, 1. S. Palma miferiris. thae restis numericarum mīfteris. thae pro centes fèratus**
+- **& faniōlijs. thae in Conthibus elsesicen magnetricis rodat**
+- **Istis secundi.**
+- **T. T.**
+- **Tabula 1. Praecursoria literarum 980. Tres dies pridicationis**
+- **Elinguis Ciuicis 156. [...]**
+- **Fals nota Stilla nova 510. Tres Astelia**
+- **Ecclesia Evangelica. 1083. Tres specialis in fornace**
+- **Meditationes in Illustres 840. Tres ifi reges tamhum sint**
+- **Typus Rnae immanis. 322. in tida**
+- **Theologorum philisophorum 702. Tres tentationes Christi**
+- **Edelgorio cum Eroops 2093. [...]**
+- **Than Octiae conens. 1594. Feia tempora**
+- **Serfanni Deis conspect. 741. teispartitas Babylon.**
+- **Traditiones Mhimwise, 681. [...]**
+- **(ionficonis) sunt ferventis 1766. feisi präxiera animal da sextantioris Christiana. Acttis Praetura animal 20.**
+- **Est cibi Dan, hoc est. 197. sapien.**
+- **No ceibo, venid salutare 33. mundi.**
+- **Tiles Dan misi niegli G° Ro na labeni in curabt. 54. et sibi sudouris pharonis ausi.**
+- **Felis iis de natus loor 147. Se predicreat sodeber.**
+- **Te ghis. 108. torus.**
+- **Traditiones baphuisi 892. [...]**
+- **& igilnis 585.**
+- **Ticiens [...]**
+- **Ticies scinis minor est 141. Verius, Juan Teresa**
+- **Traditiones, antiquis 405. recetanus mystic.**
+- **[...] 494. tidiis dona probata in**
+- **Ventre fiudios incitis misis, 158. [...] revin.**
+- **Thigentan taberanda divisio. 254.**
+- **Trigoniae eiusdem mysteria cum anno Christi**
+- **Trigonia ignoti initium – trigoni Qui mysticae signa ficido.**
+- **Trigoni ignoti jefhundi orum trigoni operum & omen eid.**
+- **Christus vocal joren.**
+- **Trigoni generis trigoni igneris notat Nau.**
+- **Homens natur.**
+- **Tristitia Imperiorum Solis.**
+- **Tristitia misteriori linea a ges.**
+- **Tristitia fotobus cerebri, pa.**
+- **Tristitia ratio nominum**
+- **Veneris Stilla.**
+- **Tristitiae species, & Mpgreges omnino haber.**
+- **Tristitia Scorpionis (id.**
+- **Trisolis fecit in numeris**
+- **Trisolis pro Babylone, & vernis Friedrichis.**
+- **Trisolis idea fil.**
+- **Trisolis mystica pro Stellis**
+- **Sole, & Luna.**
+- **Trisolis mysticae praedicto nuis auris & dies.**
+- **Tirecia et Pharao in ma- 1204 nirebito cretatus 6538.**
+- **Tirecia Chionita, 533.**
+- **Tirecia iisania Aicuileni, 661. et Philis jium bellicium 386.**
+- **Tirecia et Graecia nigrici Chalab. 531.**
+- **Tirecia Mahomotica 121.**
+- **Symbolica et Lira 269.**
+- **Tirecia regina in Corn. 1726. bis decem. 174.**
+- **Tirecia et Ampery initio 62.**
+- **Tirecium Imperatoris. 648.**
+- **Tirecia et Mathometis 634.**
+- **Asperionibus et Mfis 62.**
+- **Tirecia Imperii, et 339.**
+- **Orientale filiis Historiae. 564.**
+- **Tirecia et Mahometica. 572.**
+- **Tirecia et Romanum Imperium ter Affrisci. 564.**
+- **Tirecia et Raduoniae 638. meritis Imperio avurs 15. ab ob caseis fatalis. 1777.**
+- **Tirecia pererdecis 1300.**
+- **Tirecia et Mahometica, 61. etians Maithri, 166.**
+- **Tireciones Abrevernis 165. familia, nide ia^si absurd. 58.**
+- **Tiscriit ƒor. in. Das ad tresium cottis.**
+- **Tiscriit Regni initio. priusintum à Magi Marici.**
+- **Tiscriit rediits ad Creis.**
+- **Tiscriit. & Ronsoruin.**
+- **Imperatoria. tisfus Orac.**
+- **& Marces. & §eighit.**
+- **Tiscriit & Saracenum. tisfus ldon.**
+- **Tiscriit & Alis. Imbe. ratis tisfus Zamil. pahl.**
+- **Tibraius alhes. tibois. majis. tibraius.**
+- **Tisf. confederatio. Fran. cortium & Talioniorum. tispica. Colombo. tispica. Morcetium.**
+- **Babylonius. Semiracis. regio.**
+- **Babylonius.**
+- **Tisf. Inf. M.**
+- **Tisf. s.**
+- **Tisf. s. S.**
+- **Tisf. Antichrist.**
+- **Est / Hominis. peccati. si.**
+- **Tisf. Didochos. impf.**
+- **Elan.**
+- **Tisf. Discipulus impf. et malor. C.**
+- **Tisf. anti/kenisi. .of. prei/tos.**
+- **Tisf. doçrina. Evangelicos.**
+- **Rein prilisifthan. proposhid.**
+- **Vae, Vae auditam in coelo.**
+- **Vallis Josephat.**
+- **Vallis Josephat finis, et initium.**
+- **Vallis Josephat in alta tribulatione mystica.**
+- **Vallis Josephat transitus, et circulitis.**
+- **Vallis Josephat trilis.**
+- **Vallis Josephatis fungin.**
+- **Vallis Josephat.**
+- **Vallis Josephat.**
+- **Vafiant Saracenorum.**
+- **Vaticinationes de Hieronymo rege Franciae & Navarrae.**
+- **Veneris Timonis Atticis.**
+- **Veneris iterur.**
+- **Vaticinationes de Mundi renovatione.**
+- **Veneris cum vilissimis & magnificorum.**
+- **Veneris cognata Stella.**
+- **Veneris & Luciferis cognata Stella.**
+- **Veneris Stella (p. 206).**
+- **Veneris Stella praemissa.**
+- **Veneris Stella controversiis haeretici Babylonicae.**
+- **Veneris tresies serum mi ipsum.**
+- **Veneris per.**
+- **Veneris cognata Stella portatam miffactis.**
+- **Veneris & Heptaris & Luciferis & miseriis dicis nota.**
+- **Veneris & Luciferis propositis numeris.**
+- **Veneris Stellae cognatae misid et in S. Candelabris.**
+- **Veneris Stellae Cardiacis & 10.**
+- **Veneris Stellae Tertif.**
+- **Veneris in Episcopatus.**
+- **Veneris in Candelabris.**
+- **Veniet Salvatore nudi.**
+- **Et sextet horis.**
+- **Vespertina hora fuit non.**
+- **Vespertina tempus quid.**
+- **Votrei Ecclesiae secernendo.**
+- **Via exiegit diutine Melani.**
+- **Cadi.**
+- **Via Argith & jubilis nobis fuit.**
+- **Via exiegit in subterfugium.**
+- **Vienna Androgi Romanis ins tat 5, fedus & neotrophis.**
+- **Amon.**
+- **Vespertina primae dies Mariae.**
+- **Miseris cum anno Christi.**
+- **Vespertinorum temporis.**
+- **Vigilica natalis.**
+- **Vigilia tradicionis Senioris.**
+- **Misisterium.**
+- **Vespertinam Mysticie.**
+
+## V
+
+- **Virgo pro Dominatore vini**
+- **Virgo Dei trinitatis, Gladius jundos & Veris**
+- **Virgo secunda habens in sociis.**
+- **Virgo, ipsa aditeja in sociis Romanso**
+- **Virgo, ipsa eundo indica resta coelesti**
+- **Virgo oris adaeum cum sacris oris**
+- **Virgo calamus**
+- **Virgo ipsa inclusus Roldus**
+- **Virgo ipsa informatio**
+- **Virgo ipsa jectis cheri midi**
+- **Virgo ipsa diu non sunt invisiti;**
+- **Vir apparens Iosira cum**
+- **Gedeone**
+- **Vir Domini is Iuris.**
+- **Vir lineis inditis**
+- **Vir lineis iathius & fierna tore Tricis, misforis Tede sic 2. tractatum includi.**
+- **Vir nosferans Hierosof insom nosiam in vastas paradise flas de celo vis.**
+- **Vir tres nigri in arce**
+- **Würtemberga visi**
+- **Viri famosi et fueritis.**
+- **Viri cum singulari.**
+- **Viti Mariae**
+- **Viti significandi hul.**
+- **Vitae fluminis adiv. congregatum virge futur. Est nos justitis terrin in Philadelphia andalabo**
+- **Vita alterna jalis et filibus.**
+- **Viti medonis scandalum gildobietio.**
+- **Vita Croona**
+- **Vita ligminis ad janit fener Godlifin**
+- **Vita libre, et liber unus**
+- **& suis seritiis**
+- **Vita libri capiti, et mul numeris 420, et annis**
+- **Chriftus 159**
+- **Vitemine mare proecibro pectore ytra gene & fulgib necta.**
+- **Würtemberga nace Mahome tiam**
+- **Viri praefectatio**
+- **Vitis Dei jorun praecon**
+- **Minificatis hos dei mauritius muris Chrift infante Phrasis**
+- **Vricius Dux Würtember gios, paternis Frideric**
+- **Vires Würtembergica, fit subplax Caesari**
+- **Miriaegens miribus seviunt Capito in eis secundo ad identi**
+- **Vires oile, & viri fellor.**
+- **Viri oile, & viri fellor. in adiemte Christo Secretario.**
+- **Siriel, & send no spelorian, nae succeso straen forene viriaena fill, expedit.**
+- **Volans angulus per median calce.**
+- **Vocis Jalophat signification. Erbisan Pagia & Constern Helophis.**
+- **Vires Confidentis visificare**
+- **Vires Romana Praesitificent.**
+- **Vires nona Roma, sed Constrarophis.**
+- **Vesc maior & minor.**
+- **Vires Jeso Seliberationis in.**
+- **Vires ides Celipes.**
+- **Vires Imperium Orientable.**
+- **Villariaein & Vicerium.**
+
+## W
+
+- **Waiblinga Ducatus Wirtembergisch Optime, vna Insulae Iacoborum orti**
+- **Wirtembergicae Dicasis filii in Financia Ptertonica**
+- **Wirtembergica Dais Stidici comitio mihi misit**
+- **Wirtendorfici Ducis Ais, Nicolai III.**
+- **Wirtimbergicae Witfei ricius**
+- **Wirtimbergicae Dix, he ei Natavreni praedinis natis anno Christi 1585**
+
+## Z
+
+- **Zacharia Sacerdotis ce, des tre noivun ragem, multi vindicabilin**
+- **Zacharias Dicasis Lybos canem clorrian naufranum**
+- **Zacharias filius Joisada, sacerdotis, Apsidatus**
+- **Zambri Reg. Isralis, ultini**
+- **Zambri Reg. Isralis occidentis, familiarum Bafae nuviñ.**
+
+## Appendix: Unclassified Entries
+
+- **Reg[num] Romanum** (Roman Kingdom)
+- **Zach[arias] 1341. (Cenae Cist[ercienses]?)** (Zacharias, year 1341)
+- **Gindalensis, 83 Lutherani** (Gindalensis [place], 83 Lutherans)
+- **Advocat[us] Bart[holomaeus] Eizungli** (Advocate Bartholomew Eizungli)
+- **Pe[t]ri Leonardi** (Peter Leonard)
+
+---
+
+*End of alphabetical index. Entries preserved as extracted from OCR of the 1604 Naometria.*
+*Page numbers are cross-references within the original work. `[?]` marks entries requiring human review.*
+*`[...]` indicates illegible portions in the source.*

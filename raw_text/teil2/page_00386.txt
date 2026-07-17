@@ -1,0 +1,31 @@
+```
+1250.
+
+Ad urdemon nodum ex números defectu ale hic, 
+rubrica procedit numerus 1250, adod annus 
+Janisii 1589, in ritu Athenis et via Italica, 
+se, in Francia recontur accessit est, sic per 
+reductiónis sumnitator virgin:
+
+                     *
+                   78
+                  /  \
+                89    89
+              /
+            356
+           /   \
+         178     78
+        /
+      79
+
+1250.
+                *
+              716
+             /    \
+           358    358
+         /   \    /   \
+       79    90  79    90
+
+Eadem virga in anno domini 1589, fit ex 89, 
+at fibra dimis 1543, ex 43, sic:
+```

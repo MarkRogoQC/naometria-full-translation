@@ -1,0 +1,21 @@
+```
+1532.
+
+             372
+           _____
+          /     \
+         5 3   803
+               /   \
+              106   856
+             /       \
+            713      966
+          /   \      /
+         2436  1213 1713
+         ________/
+        7622, fact 2930.
+
+ Anno 413. Character regnûs Hispaniæ, adnotat eujs regni; se, apud Alieuthus & Bathorzin, familia Reg. Wysogothorum Christianorum, apu Honoricum, & precedium huf. anno Christi 412. Hispaniam sibi adfuis digniorum, primam, 
+nami obtinebat. Ita anno domini 434. Abbat. his, agnatus Alieuth, & affinis predicdorum impersonatus. & Galla Phaedia socius præmii, Gathorium Hispaniam imperfius, ex in ed. glitiis; at bis 213 faciens omnium mefiti 826, qui et Roma 1546, nota Rodolphi 2. ex Rod.
+Sic 2. Imp. Rom. familia, inbeci principium, 
+Astriferæ, de quâ Adiam reges Hispania hodierna.
+```

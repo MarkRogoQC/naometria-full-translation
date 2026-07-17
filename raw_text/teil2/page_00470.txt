@@ -1,0 +1,24 @@
+```
+1340
+
+Vallio Iosaphatica, seu mjstifica
+de Sigismundi Imperatoris regni,
+anno primo vaji ad armin Chr
+si 1620 producta sub fride
+rico secundo Imperatore re,
+[illegible]
+
+Meridies        Descensus
+A, C, D,      E, F,   G, H,   I,   G,   B,
+1     2161  1411    1621  351    337    209
+2     2162  1412    1620  370    208
+3     2163  1413    362    359
+4     2164  1414    358    370
+5     2165  1415    366
+6     2166  1416    368
+7     2167  1417    365
+8     2168  1418    364
+9     2169  1419    363
+
+[illegible]
+```

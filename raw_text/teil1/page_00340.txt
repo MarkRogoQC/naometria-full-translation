@@ -1,0 +1,49 @@
+```
+122,
+Philosophia annua textu hanc tradit calonis {chfis.} 
+               ____________
+              |            | 
+         30  |     2700   |  
+              |            | 
+              |___________ | 
+              |            |
+         31  |     2790   |
+              |            |
+              |___________ |
+              |            |
+         32  |    fait 2880  | 
+              |     8640      | 
+              |______________|  
+              |            | 
+         33  |     2970   |
+              |            |
+              |___________ |
+              |            |
+         34  |     3060   |
+              
+
+Müenezus 2700 ab 3060. Apud 360 dies min. ani lunaris lisfat. Et aliorum vnius annis proprie nota Roquin haines mundi.  Reg.13. de quo 
+scripsi: curies bisextilis pro calendiun contra, dictionis faci annu. abractionis 2590 nm niunc, dim. sipad 45: 1270 et 1920. fic:
+
+fol. 81.
+
+vide fol. 22. 
+360 dies vnius anni faci annuum abractionis 2590. 
+
+         ____________  
+        |             | 
+      360 |      180  |
+        |             |
+        |_____________|  
+        |             |
+        |      90     |
+        |_____________|  
+        |             |
+      180 |       90   |
+        |_____________|  
+        |             |
+      840 |       840  |
+        |_____________|  
+ 
+        {3360,}
+```

@@ -1,0 +1,35 @@
+```
+Ex 43 per calanum Contradictionis fit 2543,
+qui numerus 2543 se iusta superiores formas
+ditioniter.
+
+            43
+         [Illustration: decorative initial]
+          3026
+       6  672
+         3086
+       6  673
+         3087
+       2543
+         3087
+       2547
+
+    12 346
+           6  673
+         3086
+       2543
+         3087
+       2547
+         3087
+       2548
+           6  774
+
+    12 346
+           6  673
+         3086
+       2543
+         3087
+       2544
+         3087
+       2548
+```

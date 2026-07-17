@@ -1,0 +1,47 @@
+```
+436.
+
+Babylonicae transitionis ad portas inferi:
+diem annuum videre et diis n. annis m. n. superioribus tribus Elechias regnantis
+si pro annis (heft) simst annis Romce adtingantur sic:
+
+         [Amis]
+       ___________
+       |           |
+       |___________|
+       |           |
+       |___________|
+       |           |
+    101|                    760  1510 
+       |___________|   
+       |           |
+       |           |
+    15 |          Romæ  
+       |          765  1515 
+       |___________| 4541
+
+       |           |
+       |___________|   
+    25 |          
+       |          Romæ  
+       |          770  1520   
+    295|___________|            [Melitas Ammonius]
+       |           |
+    50 |          775  1535 
+       |___________|
+    33 |          780  1530  
+       |          775  1555  
+       |          Romæ  
+    234|          340  290   
+       |___________|
+
+       
+       [Amis]
+     ________________________ 
+    |                        |
+    |     [Romæ]            |
+    |     7943   .       1545        
+    | _______________    ______________        
+              |  9    |  0225
+   1545    2590  |    6180, 
+```

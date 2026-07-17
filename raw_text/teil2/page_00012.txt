@@ -1,0 +1,20 @@
+```
+862.
+
+Calendaŕii Gregoria, nem. perpetuī. : In 2d. praecepti omni- 
+bus Regibus, Principibus & Dominis, vt ho Calendariiō cum suis ̣ 
+fidelitātis à se recisiant, ℅ anno 1582: & ult. dī. 
+nordactionibus dicttando seruūs iniēnciet, 
+in anno 1583: aut dī. longius desunt, 
+anno 1584. hoc Calendario Vi. inrīceptot. 
+Quoexum iūtionem amorem 1582, 1583, 
+et 1584, siūna bipartita, facit annos 
+mundi 2374. & 2375. hoc modo:
+
+     1582
+     1583
+     1584
+    { summa: 4749
+     { anios mundi: 2374,
+     { 2375.
+```

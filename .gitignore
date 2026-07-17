@@ -1,0 +1,34 @@
+# OS files
+.DS_Store
+Thumbs.db
+Desktop.ini
+._*
+
+# Python cache
+__pycache__/
+*.pyc
+*.pyo
+*.egg-info/
+.env/
+venv/
+.venv/
+
+# IDE
+.vscode/
+.idea/
+*.swp
+*.swo
+
+# Large binary files (too large for GitHub — hosted separately)
+pdfs/
+
+# Backups and temp files
+*_backup*
+*BACKUP*
+*_old/
+*.bak
+*.tmp
+
+# Pipeline output (regenerable)
+reference/naometria_pipeline_output.csv
+reference/naometria_pipeline_summary.txt

@@ -1,0 +1,35 @@
+```
+1628. 
+
+    674
+    89
+    178  89
+    357  178  90 
+    839, 
+    6  1589
+    3396
+                                                
+    Coniunctio virge ex radice, 89, comparata, 
+      
+             11124
+             1589
+    3178  1589
+    635  3179
+
+          926 
+          839,  6  1589
+          2428.
+          3396
+
+Annus hic 1509, plare Walaversicus est, filii 
+Heinricius 4. Hattare Rex sucefit Attinico 
+3. in regno Francia, cujus character est pupe-
+rior numerique 624, interius, hoc est annus 
+Cheisti 4269, sucefit. In eo enim historia 
+incipiunt Francorum Reges & Generatus in 
+Gallia numerare, in rege bello Clodio capilla 
+to, filio Pharanunidi Diciis Orientalis Francii 
+anno domini 420 in regno ex Luci Francia, 
+omnium Francorum confert declaratio, ita annus 
+domini 420 Orientalis: at 426 Occidental
+```

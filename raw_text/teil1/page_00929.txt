@@ -1,0 +1,25 @@
+1086. anno sequenti 1087. dorhtum et regni. Bohemiae, per. Vratislaui primum Bohe. mia regnum, coronation die 16 Julij, ab Engelberto Archiepiscopo Teurnicensi, in Ec. die m agna d rago. ita vt hic annus domini 1086 eius regni Bohemici in miste. rijs nota sit: in duo regno exerefit eum Rodolffus primus imperator, & eius Posteriatus; ad cuius regni annum. Chrift 1273 sujfevicem, si addatunt an. ni intercalaris, fit inde annus Chreisti 1286: in die Stella nova, & Cognata nativae misterionis pu. rium offerbilium, con. tra Ajdta Romanorum annus 1576 prozu. io rege, denonciate hoc anno mundi 2891, in die David natis. 61. resolutione. 
+
+[Diagram with numbers and branches] 
+
+       2891
+      _____________
+     |             |
+   413              1163
+   826              1576
+   165              3152
+                  1576
+
+       [Diagram with numbers and branches] 
+
+    Chrefti    Rome 
+       413      1163 
+       826      1576 
+       165      3152 
+   
+    4702 
+   In attestationis 
+   3150*1576 
+   1893 
+
+Dic

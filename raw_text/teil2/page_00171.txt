@@ -1,0 +1,25 @@
+```plaintext
+Minuenzi siiferiones in litera
+A, ante natione Christiana ora,
+diert in annos actuos Moysi:
+mundidi conditi: exitus:
+et abbreviationis hos:
+
+Anno ante Christum
+
+1509   87    2460          3092
+1506   81    4541          3098
+1515   71    2431          3114
+
+1516   243,  7362  3681,  5681
+
+Coniunctio omnium abrev, 
+viatorum ex media parte in
+litera C.
+
+1546       3366         1576       1621
+1549   4652         3366          1576       1621
+1559   .......
+
+Anno mundi 3242 Abfizien regione ad cal.
+```

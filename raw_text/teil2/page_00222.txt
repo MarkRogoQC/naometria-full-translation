@@ -1,0 +1,28 @@
+```
+1092.
+
+Puid si hũe nūmerum 11200 in tēria tēra fuerit resplendentius, nascītur inde annus
+thēti 1600, in quem nūmerus 33, adēōs charācteristicus annus Addonis 
+regis natalitiis 2503 per calamitatem Con
+tradictionis incidit si:
+
+  11200
+  1600, 
+  ----------
+  3200    1600.
+  ----------
+  6400 
+  3200   1600. 
+          1600
+  ----------
+          3200   1600. 
+          1600
+
+Diagrama superior bipartita négrīnis 
+79, et 439, et 318, qui facient dies
+2590, diū annis 1590 etiam numeri 
+habent Ex eius resplenditīone. De iis si,
+prae, & modo dictum I. siū praescripti.
+  
+318.
+```

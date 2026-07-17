@@ -1,0 +1,29 @@
+```
+0 9 1 1 1 9 7
+                       j
+              9
+              1
+            V
+                       9
+                9
+                1
+              1 1
+      [illegible]
+                        2 Nam
+             9 1 1 4 9
+                   9
+        Stabunt Solem 2nam
+                  j
+                  9
+                   1
+                 L
+             Vastabunt Solem 2nam
+                    j
+                    9
+                  1
+                L
+             Vastabunt Vastabunt Solem 2nam
+                          j
+                9 9
+             Vastabunt Solem 2nam Solem Lü
+```

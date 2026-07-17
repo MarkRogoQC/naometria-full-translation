@@ -1,0 +1,26 @@
+```
+1578
+
+           249
+         ────
+      158 │ 240
+           ─────
+         77 │ 0
+         44 │ 4
+         90 │ 4
+           ─────
+
+Decima siberior diei primi mensis constat de 240 horis, diebus Ecclesia trebilationem iam passis, tandeñ sibiße pedes siuos iterum habet, neglegenda per calaminum, vel lineam silencialem, cuitate eum, cuitis nota. Et annis doni Ѓ 1543, fieri faciebant 30 anni, in huiß diebus 10800 per vigenatum. (ut sapit in hoc libro de nonfrustrato D.) in quadris circitatis ad Ausefen.
+
+           10800
+      ──────────────
+            
+          1542
+      ---------------
+             3086
+             1543
+      ---------------
+             6172
+             3086
+             1543
+```

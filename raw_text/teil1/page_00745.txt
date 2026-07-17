@@ -1,0 +1,32 @@
+```
+523.
+ 
+Si annum 1590, quod abseriret debet, sex numeris suis juxta, et modo prohibuit: si, 
+et anni condite Romae 750, et 3370, in dos anni mundi 3962, et 5582, in 
+littera anni praenotum Leonis Gentilionis qui est Chresti 1620, proferent se per 
+calamum Tiliis, A Confutationis c.
+
+[Diagram of numbers in brackets]
+
+3962
+{ 750
+  { 3120
+    3370
+  1560
+
+Annus Chresti
+Romæ
+{ 60
+  { 810
+    870
+  1 6 2 0
+    810
+    1620
+  324 c 
+
+In duos annos domini 1620, fiet mihi Dii Orde m. 
+le, et mihi pastor, ad quatuor aninas 
+vibus Honorice, Bone, Agnella et Leone, 
+
+[Marginal note in cursive]
+```

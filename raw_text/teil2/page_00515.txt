@@ -1,0 +1,43 @@
+```
+Ex hoc 124. specta aliquotuis annus Christi, 
+1589 Nadavericius est Iudus, qui propter 
+et annus Christi, A Stella noie 1572, ex 
+hoc 6290, sic
+
+              6290
+            _____|_____
+           |           |
+          3145       3145
+          1572       1573
+                      1572
+                      1573
+
+Quarentium ad Papam Minimi interitum attinet,
+affert id ex summa limitata, A secunda nune, 
+resum agere hoc per statin. geritus afegendos:
+
+        4    112
+        8    224
+       12    336
+       16    448
+       20    566
+       24    672
+       28    Ruma 784.  [illegible]  34. 2474
+
+                971
+             ______|______
+            |              |
+          862           1472
+             |   7   |   462
+             34   348
+
+             862
+             |  2  4  612
+             |____________
+            |          3974
+            1612  2   4   236
+
+        3136  1586   1585
+        __________ 
+       6448.
+```

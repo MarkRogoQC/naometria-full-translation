@@ -1,0 +1,33 @@
+```plaintext
+Pontificia Asalomonis tarras
+Medinis vesci hilli Amona habet in fisu mi?
+Nevis armo Chriţi, facientes summationem 120.
+2 Ȝ 120 numeraco Aledalites probabilinus
+ad sunt Romæ 2370, adcept Chriști 1620, in
+qdo Gentes in hac Valle, Viana sufficiunt ter,
+ritibus convenientiae, stent. Stent asten
+hi anni Chriști in nuíros:
+
+Chriști  |  Roma:
+  17  |  67
+  34  |  784  2370  990
+  69  |  819
+
+  1: 6--20
+-------------------------------------------------
+    34  |  784
+              |
+    69  |  819
+
+Anni hi Chriști
+abbreviatis facili:
+
+  17  |  67
+  34  |  1556  3129
+        |  15  6
+       1583  3077
+  69  |  2521
+  120  |  4650
+
+[illegible]
+```

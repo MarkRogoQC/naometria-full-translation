@@ -1,0 +1,28 @@
+```
+57
+10899
+   15 57
+   114  57.
+228
+   114  57.
+   3114
+   1557
+6228
+   3114
+   1557
+   3114
+
+Numeris 40003 externis, in anteriore fini, tres pedes, et Cadita Edii, resolutis, extendem numerum in medio Edii prefort per reliquum non sic.
+
+40003
+   |
+   57114
+   43
+   114  29
+   228  60
+   399, 103
+
+Annis 103 per calanun Contaditionis fait an, mèm domin, 1603, in quo Fridericus Rex Viso, tambergius in Amolorin, regis Balisron el Miesce, 1615.
+
+Dies
+```

@@ -1,0 +1,21 @@
+```
+N  {     12   762   15127  }  3025
+O  {     13   763   1513   }  1525
+C          5     775   5  
+  { 800     5     775   5 }  
+D          775   1524  {     3800  }
+          {  300  3300  }  2775
+E  {     856   606  }  
+F          856   606  {     6400  }
+G  {     6462   6462  } 
+H          606   2366  {     6400  }
+1366    3424
+Fünden arnium Cheisti 1606 facit dicto erasa 
+quastors, incifta fronti necreticõs Divüloni; 
+ca, faicht in literis mineralibus 2178. (apud. 
+17. calif. I. cum hoc Calanus Contradictionis      |
+        Chisti   Roma
+1606  428   61178          →  1553 
+1178  375  3106
+1928                       4712
+```

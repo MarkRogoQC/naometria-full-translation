@@ -1,0 +1,15 @@
+```
+2604. Sic:
+Anni
+Cheif
+Romae
+{ 427 
+  3  5   4  1777
+  1604 
+  1777
+  3  5   4  3104
+  1967 }
+  4708 
+Adhiutores hactenus Cruciferoeun Expeditionis militaris Offertae in afficerioribus hactenus Coelis numeris inscribitur ab A. & de, junctibus in B. & C. et fiunt anni 1552, & 1578. In hoc anno Rodolphi 2. Imperator facit, ma fares et pro necessitate Babyloniis bella efferres.
+In anno 1552 offerta Consorentia Stares, et ea din filztra Expeditionis contra Babyloniae victuatiun: Et enim hic numeribus nota eius Praelatorum ep, qui dedit hosc annum Albertus Marchio Prandenburgicus, & Orbis territoriorum nobis genraliter, delecto ordine,
+```

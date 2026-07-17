@@ -1,0 +1,29 @@
+```
+77,
+condite Romae et Christi 1590. qui ex evidentia 2340. sciil etiam ex 300. iuliorum & confirmat 
+tione sic exhibet :
+ 
+Romae              Christi
+           1170                     420
+     2340                   840                                        45*
+            1170                 420
+                  1590
+            180                     45*
+
+[Diagram of numbers and connections]
+
+            Romae              Christi
+               45                      79*
+        840                      593
+                     1590                   339
+           3180                     1561
+
+De hoc anno 1590 locitus et Paullus in hinc suo, 
+dunum scribens: Cheifus se edit quosdam fieri ad 
+floios, osiodan Prothetas, alios Patriangelis; 
+alios safarres et doctores ad confirmationem 
+Sanctorem in plus ministrin'g in dificatione 
+coperis Christi. Tunc occurrens in videtis fidi 
+et agnitionis filii Dei in viventum perfectione, in 
+meum feceram statis Meridionalis Christi E. Phel. 4. ca.
+```

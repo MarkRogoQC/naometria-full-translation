@@ -1,0 +1,22 @@
+```
+786, 
+Sardiniæ  {Candela­brum =  960,
+           Stella  Venis = 1080. 
+            }
+Ecclesiarum  {Pro­pagandæ
+             {Candela­brum = 480. 
+             Stella  Maris = 600. 
+            }
+Ladiciæ    {Candela­brum = 1440. 
+            Stella  Linda = 1560. 
+
+Nummus  Cardelaborum, 
+960  { 
+         480   = 2880 
+         1440   }
+Nummus  Stellarium 
+1080  { 
+         600  = 3240 
+         1560  = 1620 
+         } 
+```

@@ -1,0 +1,23 @@
+```
+1244.
+1543.
+
+  308   1542
+      ↷  1545
+
+  617   3085 
+      ↷  3086 
+      ↷  1543
+
+  1234   3086
+      ↷  1543
+      ↷  3082
+      ↷  1543
+
+  [1600]
+  
+Sicĩd 60, ita etiam 1560 nummo banda ex radice 314. fisionis leobad, deductus et supra annus 1561. in the Madianite  sīll. Waldboneti  iudicia  differunt. Ad hoc mȳ sicertia reflectit aliter nummus  83. Es vocabulö Gedcon. eatus confirmatio facta ex num. 1561, cum anno Ianuarii 1567. Mathus 3. Tircovian, Es Madianitarum Imperator.
+
+Das, etiamius in mauri vitreo, et misis gini
+bis, apri 25. aprile
+```

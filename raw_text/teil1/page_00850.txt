@@ -1,0 +1,20 @@
+```
+628,
+
+    42    6
+      6   0
+      1   ½
+      2   4 4
+
+    42    0
+      6   0
+      1   7 0
+      2   4 0
+
+Ab anno Christi 426 historia incipit numerare reges Francorum et Gernanu, in Gallia, ita, ut hic vobis annis 426 Liuji regni symbolum sit. 
+In Lima anno Domini 612, Mahometus in Arabia propheta vocari capit; 
+Anno 624 idam Mahometus Saracenus, neuiter et Pije, et Propheta potens fit, obiciens, et silveris literam S. 
+Scripturae, intestatis suis Hochbergis et dominationibus. 
+Sed etiam sub prior annis nudis 3852 ex adribus. Na quareicis produkcius, si doces tragadici, 
+bat  
+```

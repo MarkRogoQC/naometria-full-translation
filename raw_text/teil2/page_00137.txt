@@ -1,0 +1,48 @@
+```
+Sic Iettem mores faciunt dies zio: died
+rium resolutionis numericis per calumniam
+Contradictionis facit annuum Theoristi 12.0:
+in his saeculis illa Thielecorum, Tacta,
+verum Moositationis & Decescarinorum
+Hispanorentium in effectu producture, Sic:
+
+Z10
+30
+60.
+120.
+
+              |  Anni       Reme
+            30 |  1      /  780
+             810  |        1
+               60  |      5   |
+                     _________
+                     3120.
+
+           |  Anni       Reme
+          780 |  3     / 1560
+             2310 |        1
+              60 |      5   |
+                     _________
+                     6120.
+
+            |  Anni       Reme
+          810 |  1      / 1560
+              2370 |        1
+               60 |      5   |
+                     _________
+                     6240.
+
+              |  Anni       Reme
+           60 |  2      / 810
+               2310 |        1
+              60 |      5   |
+                     _________
+                     3240.
+
+               |  Anni       Reme
+           120 |  1      / 870
+               3480 |        1
+              60 |      5   |
+                     _________
+                     3480.
+```

@@ -1,0 +1,47 @@
+```
+600
+
+  300
+  344
+     43
+    43
+  171
+    86
+     43
+     43
+
+[Illustration of a diagram with numbers and connecting lines]
+
+Jahris M. 1781. aus Christi 819. alltraciet, 
+die 771. fer confusans, Simon Franc. 
+   772 1543
+
+  600
+
+Rieß ex huius vigeo nanometricæ radice 43 confisā, 
+in Jahris Christi 1674. huiū Theoreticae propeītis, 
+cavden viergam si conteti.
+
+   308
+   348
+   308
+    43
+    43
+
+[Illustration of a diagram with numbers and connecting lines]
+
+  600
+
+  13474
+   308
+   308
+   348
+    43
+    43
+
+   3086
+   1942
+   3086
+
+  1943
+```

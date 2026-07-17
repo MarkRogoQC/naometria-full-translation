@@ -1,0 +1,13 @@
+```
+Clemens V.         8   10     14
+Ioannes XXII.     19   0     10
+Benedictus XII.    7   3     17
+Clemens VI.      10   6      16
+Innocentius VI.  10   0      6
+Vebanius V.       8   0      6
+Gregorius IX.     7   9      6
+                ____________
+                69   19     53
+
+Anno Christi 69 Ecclesia Christi, quæ erat Hierosolymis congregata, bello Aidaico per Verbificationem convenienti, dirrinis observatione Peltam trans Jordanem fuisit, A translatta: hinc autem hæc titulus illius Ecclesiæ Euangelicæ, quæ in temporibus set Patris sit inférta, deum nonemit Magnis. Exite de Babylone, filiæ nequiss. et ne participes sitis delict.
+```

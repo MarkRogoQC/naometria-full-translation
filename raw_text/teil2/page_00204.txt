@@ -1,0 +1,46 @@
+1074.  
+bis 5552, de die hoc in loco hodierno,  
+conflarent, vt annotat Bergomas libro 8.  
+fol. 121.  
+
+Annus 1534 crucifixionis nota St. dedicetur  
+2 radice 34, in die Dominus noster mis  
+fuit et crucifixis: ita minuerus 2484  
+anni magni confirmative ex anno Christi  
+864, et Roma 1617, et 867 bifaritetis,  
+facit: 864/433: in die crucifixionis chara,  
+deo est.  
+
+Capitulo autem Pontificis Romani de cui  
+ce suspendendi et numeribus inferior die,  
+cum 112, in litera A. faciens annorum  
+Christi 1612, per calamitam contradictionis  
+hinc:  
+  
+[diagram]  
+{  
+  112   
+  * 7  
+  862   
+  = 2474,  
+  * 2  
+  =  162  
+}  
+974  
+
+{  
+  862   
+  * 3  
+  = 2 4  
+  +  2 39  
+}  
+A. 3448,  
+
+[diagram]  
+{  
+  862  
+  * 3  
+  = 2 4  
+  +  2 362  
+}  
+B. 6448,
